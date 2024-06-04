@@ -1,0 +1,134 @@
+## SUGGESTED CATALOG FILTERS
+##
+## This file contains patterns for filtering out most of the trash that makes up
+## the /lgbt/ board. As a result of the filtering, the board's catalog becomes
+## easier to navigate, as many of the threads are hidden. A pattern is also
+## suggested to highlight our /wcg/ thread, so that it is even easier to locate
+## in the filtered catalog.
+##
+## Click "Filters" in the board's catalog to specify your choice of patterns.
+## For every pattern:
+##
+## * Select "Hide" if you want matching threads to be omitted from the catalog.
+## * Select "Top" if you want matching threads to be listed first in the
+##   catalog.
+## * Select a color if you want matching threads to be highlighted by a colored
+##   border in the catalog.
+##
+## Patterns apply to all boards unless you specify a space-separated list of
+## boards where they apply.
+##
+## Click "?" for more help.
+##
+## COOKIES
+##
+## The filters you specify are saved in a cookie when you click "Save". If you
+## clear your cookies, your filters will go. Browsers normally make it possible
+## to exclude certain cookies from being deleted.
+##
+## In Firefox, for instance, adding an "Allow" cookie exception for
+## "https://4chan.org" excludes 4chan cookies from being deleted when Firefox is
+## closed, if that option is selected.
+##
+## PATTERNS AND MATCHING
+##
+## Patterns enclosed in forward slashes are apparently JavaScript regular
+## expressions, see:
+##
+## https://developer.mozilla.org/docs/Web/JavaScript/Guide/Regular_Expressions
+## https://developer.mozilla.org/docs/Web/JavaScript/Guide/Regular_Expressions/Cheatsheet
+##
+## Default regexp matching is case-sensitive. Append "i" for a case-insensitive
+## search: /regexp/i.
+##
+## Patterns not enclosed in forward slashes appear to be simpler glob patterns
+## which are matched case-insensitively, although only *, not ? nor [], is
+## recognized as a metacharacter.
+##
+## The match appears to be looked for in the whole "Subject: OP comment" text
+## under every image in the catalog, or in only one of "Subject" and "OP
+## comment" if the other is empty. The image filename is also looked in!
+
+# Put the following pattern first in the list of filters in order to filter our
+# thread IN (i.e. select "Top" and/or a color, not "Hide"). Explicitly filtering
+# our thread in prevents it from being accidentaly filtered OUT as a false
+# positive of any of the later filters.
+wcg|webcomics
+
+# Protect other threads you're interested in from accidental filtering, for
+# instance:
+gaygen|bigen|ftmg
+
+# Filter out the words "trans", "transgender", "transgirl" (with or without
+# intermediate space), "transwoman/women" (same), "transition", "transmax" and
+# their derivatives such as "transgirls" and "transitioning" while not matching
+# other words that start with "trans" such as "translation", "transportation",
+# "transistor" etc. Since I'm even less interested reading about trannies on
+# other boards, it's a universal filter (i.e. it applies to all boards).
+/\b(T|t)rans\b/
+/\b(T|t)rans(gender| ?girls?| ?wom[ae]n|ition.*|max.*)\b/
+
+# The previous two filters also filter out FtM threads that mention "trans",
+# "transgender" or "transition". If you want to preserve those, replace the
+# previous two filters with the following one. Alternatively, protect the FtM
+# threads you're interested in, such as /ftmg/, by filtering them IN beforehand
+# (see above).
+/\b(T|t)rans( ?girls?| ?wom[ae]n|max.*)\b/
+
+# Filter out "troon", "tranny" and derivatives such as "trooning out", "tranner"
+# and "trannies". Obviously universal. Also, "tttt", but not universal.
+troon*|trann*
+tttt
+
+# Self-explanatory. As a bonus it filters out "oh no, X-sissies, what will we
+# do?".
+agp*|hsts*|blanchard*|hrt|ffs|mtf*|*siss*|egg|terf*
+
+# Also self-explanatory. I could fit this into one big filter, but I prefer
+# dividing them up into manageable chunks if I want to add something without the
+# risk of making other filters not work.
+*brain*|repress*|pass*|repper*|chase*|repg*
+voice train*
+
+# Filter out any word that contains "hon" unless followed by "est", so "hon",
+# "shoulderhons", "honfidence", but not "honestly".
+/\b.*hon(?!est).*\b/i
+
+# Again, self-explanatory. Maybe remove inject* to keep FtM threads.
+*estro*|progest*|hormon*|inject*
+dysphor*
+
+# Filters out all known to me combinations of "be a woman".
+/(be|been|become|is) a[ \w]+(woman|girl)/i
+
+# Prunes out AMAB/AFAB talk and various capitalisations of it.
+/\ba[mfg]ab\b/i
+
+# All babble about Xmodders out.
+/\b(boy|man|girl)mod/i
+
+# For that one obese spammer.
+"kino pairing"
+
+# Fetishists begone (universal).
+diaper
+
+# Universal filter that prunes out threads that begin with a quote (>), leaving
+# intact those that begin with a quote link (>>). There are no good 4chan
+# threads that begin with a quote, it's either shitposting, trolling, bait,
+# astroturfing, raiding or all of the above.
+/^&gt;(?!&gt;)/
+
+# Another universal filter: those two words, in any order, so will match all the
+# "virgin X vs chad Y" shitposts.
+virgin chad
+
+# Clears out the catalogue of all Xpillers and femboy (cryptotranny) shit. As a
+# bonus it gets rid of annoying tomboyhets in /a/djacent boards.
+*mboy*|*pill*
+
+# Also for the easily trollable boards like /tg/ it's prudent to include this
+# filter that blocks lazy baitposts which end in question marks. If it's a
+# question followed by something else, it has a chance of not being retarded, so
+# the filter leaves it.
+/\?$/

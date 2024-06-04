@@ -1,0 +1,1593 @@
+## Info
+
+This is /wcg/'s next-gen pastebin.
+
+It can be anonymously edited by anyone. The [Cryptpad instance](https://cryptpad.fr/) where it is stored is hosted by [XWiki SAS](https://xwiki.com/en/company/who-we-are/), the employee-owned company behind [Cryptpad](https://github.com/xwiki-labs/cryptpad). There are many other, community-maintained Cryptpad instances we can choose from if this one proves unsuitable for any reason in the future.
+
+The pad belongs to a user named *wcg* whose password is *h3wjWgakwxHs3HZ*. No personal data is necessary to open an account. No account is necessary to edit the document.
+
+Sharing links: [editable](https://cryptpad.fr/code/#/2/code/edit/u9WMp8xnWArb0-xZ7ljJAjaa/), [read-only Markdown source](https://cryptpad.fr/code/#/2/code/view/Mr+SCan-wtlJ2lJGQ4iKAXerD5iSgI3MseRF0hUoR24/), [read-only HTML result](https://cryptpad.fr/code/#/2/code/view/Mr+SCan-wtlJ2lJGQ4iKAXerD5iSgI3MseRF0hUoR24/present/). The links contain the secret key to decrypt and encrypt the pad.
+
+Markdown syntax:
+
+* [Cheat sheet](https://commonmark.org/help/) and [guide](https://guides.github.com/features/mastering-markdown/).
+* Hyperlinks: `[link text](http://...)`.
+* Line break in paragraph: add `\` or two blank spaces at the end of the line.
+
+## The webcomics
+
+Comics in **bold** are NSFW.
+
+Official /wcg/ Tapas account:\
+Username: generalwebcomic@mailinator.com\
+Password: Adrian
+
+### Waifu Tier
+
+[Always Raining Here](https://alwaysraininghere.com)\
+Teenage Awkwardness\
+Bonus stories: [Epilogue](https://imgur.com/a/a8gIDGs), [Away in Summer Part I](http://imgur.com/a/2vdRo), [Away in Summer Part II](http://imgur.com/a/BaSgX)\
+Updates: The story is complete
+
+[Their Story](https://yaoi-blcd.tumblr.com/)\
+Sun Jing (the brunette) fals in love with Qui Tong (the blonde) at first sight. This is their story.\
+Updates: Every few days or so.
+
+### Serious Bussiness Tier
+
+[Fritz Fargo](http://fritzfargo.com/)\
+Canadian band and their druggy singer fucks everything up.\
+Updates: No regular update schedule
+
+[**TJ and Amal**](http://tjandamal.com/)\
+Two guys on a road trip.\
+[Bonus epilogue](http://s000.tinyupload.com/index.php?file_id=73529874685808276873)\
+Updates: The story is complete
+
+[**14 Nights**](https://14nights.kstipetic.com/comic.php?page=1)\
+Fat cripple and asexual weirdo have sex and weird dreams or something.\
+Updates: The story is complete.
+
+### Gay Comics
+
+[**Abel & A Dead Man**](https://tapas.io/series/abel--comic/info)\
+Jim lives an ordinary life until the day he's supposed to die. Abel is a Soul Collector who decides to let Jim live and asks him out instead.\
+Updates: The story is complete
+
+[Abel Body](https://abelboddy.com/)\
+Abel Boddy follows the everyday adventures of a hedonistic guardian angel (Abel) and his perpetually frustrated ward (Howard).\
+Updates: On a hiatus since 2020.
+
+[**Adagio**](http://adagiocomic.com/)\
+Fan and rockstar get stuck in a hotel room together.\
+Updates: Tuesdays
+
+[**Almost Touching**](https://tapas.io/series/Almost-Touching)\
+Wyatt's got a huge secret and Aiden is a nosy pest who becomes intertwined in it. Though he doesn't seem to mind much...\
+Updates: Once per year
+
+[Always There](https://tapas.io/series/Always-There)\
+As unconditional friendships go, the limits of Nathan and Eli's bromance sometimes are not as clear as they should be.\
+Updates: Often, but no regular schedule
+
+[Angel in the Forest](https://www.webtoons.com/en/challenge/the-angel-in-the-forest/list?title_no=230887)\
+Have you ever wanted to see a bat fuck a mouse? Then I've got just the webcomic for you\!\
+Updates: Tuesdays
+
+[Apathetic Boyfriends](https://tapas.io/series/apathetic-boyfriends/info)\
+Two apathetic guys falls in love with each other.\
+Updates: Weekly
+
+[Artifice](http://webcomics.yaoi911.com/)\
+Android designed to kill people falls for a guy.\
+Updates: The story is complete.
+
+[Asscastle](http://lamezone.net/comics/asscastle/)\
+I never asked for this scary handjob.\
+Updates: The story is complete.
+
+[**Avialae**](http://avialaecomic.com/)\
+A qt pierced freckled outspoken gay guy in a rural conservative town who suddenly begins sprouting wings Haibane Renmei style. Plus, wingjobs and tumblr sexualities.\
+Updates: The story is complete
+
+[Backdoor](https://tapas.io/series/Backdoor)\
+Sam is a young man dreaming about being a great journalist, and travelling through the world. Instead he works in a fast food, and struggles to pay his rent every month. Life goes on but Sam starts to see very strange things around him\
+Updates: On an indefinite hiatus as of April 2021
+
+[**Banquet**](https://www.banquetcomic.com)\
+A baby falls to hell and gets adopted by king demon bear and his twunk bodyguard/lover. Author seems keen on fanservice, but nothing hardcore yet.\
+Updates: Saturdays and occasionally Wednesdays
+
+[Beret](http://beretcomic.com/)\
+A comic about ARTISTS in a STRANGE WORLD menaced by an UNSPEAKABLE HORROR. Also it's about like, goofy kids who don't really know what they're doing with their lives. You know, stuff.\
+Updates: No regular schedule, updates in short bursts
+
+[**Bittersweet**](https://tapas.io/series/Bittersweet_Eng)\
+Bi(?) guy meets underclassman. Has some slight translation issues, original in Portuguese\
+Updates: Every two weeks or so
+
+[Bittersweet Candy Bowl](http://www.bittersweetcandybowl.com/)\
+Catboys, but not as hot as it sounds.\
+Updates: Monday, Wednesday, Friday
+
+[Black and Blue](https://tapas.io/series/black-blue)\
+Plot is basically Java Bonds + shounen quirks\
+Updates: Thursdays
+
+[Blackwater](http://blackwatercomic.tumblr.com/)\
+Unlikely friends and supernatural adventures.\
+Updates: Fridays
+
+[Bonding Tides](http://bondingtides.smackjeeves.com/)\
+The Little Mermaid, but gay. And there are randomly a lot of topless old women, so beware of tits.\
+Updates: Weekly
+
+[**Boned**](http://bonedcomic.com)\
+A comedy about four gay guys and a parrot surviving NYC on Halloween weekend.\
+Updates: The story is complete.
+
+[Boneheaded](http://boneheadedcomic.tumblr.com/)\
+Gay skull-headed guy tries to date some local superheroes and villains\
+Updates: The story is complete
+
+[Bone's Tarot](https://tapas.io/series/Bones-Tarot)\
+When Markus Bone, a Mage U.S. Marshal of some renown, has his enchanted weapon stolen, he's forced to ask an old friend he's been avoiding for five years for help.\
+Updates: Thrice a week.
+
+[Bound: The Contract](https://tapas.io/series/Bound-The-Contract/info)\
+Every mage has a page- tucked away in the sewing rooms of the monastery - as the anchoring shield of every mage. And Embry has Kuo. But keeping the relationship without complications is impossible.\
+Updates: Three times a week
+
+[Boyfriends](https://tapas.io/series/Boyfriends)\
+About a goth, a prep, a nerd, and a jock. "Just a comic about boys being in love." May or may not end with a foursome.\
+Updates: No regular update schedule
+
+[Boy in the Pink Earmuffs](https://boyinpinkearmuffs.com)\
+Socially awkward shota meets normal shota.\
+Updates: Rarely
+
+[**Breaks**](http://www.breakscomic.com/)\
+High school kids somehow find time in between getting irrationally angry and beating each other up to romance. Probably won't end well.\
+Updates: Mondays
+
+[**Bruises**](http://stupidboys.smackjeeves.com/chapters/35231/chapter-1-drunk/)\
+Skinny white (Mexican?) boy meets hockey player, they kick ass together and smash. Is it a love story? Who knows.\
+Updates: On hiatus
+
+[B-Side You](https://tapas.io/series/B-SIDE-You)\
+Aspiring musician and delinquent-in-reform, Danny Strife, meets TA and goody-two-shoes, Alden Taylor, at community college. The two strike up a friendship and Danny starts to educate Alden about his favorite subject - music - and Alden shows Danny a potential future at an amazing music school. As time goes on, however, their feelings for each other grow beyond friendship... and definitely beyond student and TA...\
+Updates: Wednesdays
+
+[Cans of Beans](http://www.cansofbeans.com/)\
+Werewolf sophomore meets broish surfer senior. Friendship ensues.\
+Updates: The story is complete
+
+[**Captured**](http://captured.smackjeeves.com)\
+Closeted soccer player begins relationship with photographer but can't get over his closetedness. Another gay couple getting broken up by college. Bullying and gay bashing but the adults don't give a fuck. For some reason the characters share the names of band members from One Direction.\
+Updates: No regular update schedule.
+
+[Castle Swimmer](https://www.webtoons.com/en/fantasy/castle-swimmer/list?title_no=1499)\
+Mershota goldfish x sharkboy\
+Updates: Weekly
+
+[Casual Hex](https://www.casualhexcomic.com)\
+Twink hunter of paranormal s saved from being eaten by a ghost by a gay hunk exorcist. But in the darkness an evil lurks wanting to possess twink's body.\
+Updates: Every two weeks
+
+[Clockmaster](https://www.the-clockmaster.com/index)\
+Two siblings find a strange guy, unconscious, with an unusual clock installed on his forehead. Little do they know, that's far from the weirdest thing about the petty criminal they just took in.\
+Updates: Thursdays
+
+[Come Hell or High Water](https://www.chohwcomic.com)\
+Prince Gladimir was never meant to fall for a Pirate. Swearing off love for duty, the threat of war soon propels him back into the Captain's world of high seas and high stakes. Torn between his love for country and a completely ungovernable man, their relationship could be the very thing to save the kingdom of Yvoire - or destroy it.\
+Updates: Wednesdays
+
+[Conformity](https://tapas.io/series/Conformity)\
+Small town rural fags.\
+Update: No regular update schedule
+
+[Copper Blue](https://tapas.io/series/Copper-eyes/)\
+Government issued Loveless TM pills were designed to regulate romantic emotions and avoid the complications of falling in love. But when Darcy forgets to take his daily dose and starts seeing color for the first time, a pair of blue eyes become his new obsession.\
+Updates: Wednesdays
+
+[Cosmico](https://tapas.io/episode/2364825)\
+Cosmico is a BL / LGBTQIAP +, ongoing webcomic series about the growing relationship between Marco, a cheerful aspiring barista, and Theo, an introspective astrophysics student.\
+Updates: No regular schedule.
+
+[Crash n' Burn](https://tapas.io/series/Crash-n-Burn)\
+Kyle and Tyler have a passionate hatred for one another. Their first encounter ends in a fist fight, their second one, in bed.\
+Updates: Twice weekly
+
+**Crushed** [Archive on the author's GDrive (English/German)](https://drive.google.com/drive/folders/1N9nm7O-2XFXTv_gOO_KvfnzjP64OUVsl?usp=sharing)\
+Carter "Crush" Howe is a gay guy and hockey star player at an all-boy's boarding school in Canada who begins to rethink his promiscuous lifestyle after he starts cheating on his long-time boyfriend.\
+Updates: The story has been rebooted, and so has the archive file.
+
+Crush3d!! [Tapas](https://tapas.io/series/CRUSH3D), [Webtoon](https://www.webtoons.com/en/challenge/crush3d/list?title_no=82094)\
+The sanitized, full-color reboot of Crushed. No longer a depressing, and at times darkly-accurate, porn comics with a plot featuring damaged teenagers. More emphasis on hockey hijinks and on the supporting cast.\
+Updates: Mondays
+
+[Cuanta Vida](http://tf2.skyscrapersoup.com/2008/10/12/1-the-first-page/)\
+TF2 fancomic, coming out of the closet, love and war.\
+Updates: The story is complete.
+
+[Dance with the Devil](http://littlefoolery.com/thatwhichwills.html)\
+Witch's son is invited to the Prince's ball and meets a tall, handsome stranger? They bang.\
+Updates: No regular schedule.
+
+[Decaf](https://tapas.io/series/Decafcomic)\
+Hanse, a floor manager, is going through an existential crisis until Karl, the new intern, shows up and makes thing around the office more exciting. Basically Office AU: the Comic.\
+Updates: Weekly.
+
+[**Devoto**](http://devoto.smackjeeves.com/)\
+A fallen angel works as a muse.\
+Updates: No regular update schedule. Things get posted whenever the writer gets around to it.
+
+[Disaster Debut](https://tapas.io/series/Disaster-Debut)\
+After 3 months Aaron and Nemo decide to finally take the final step in their relationship. But due to an unnecessary and very stupid misunderstanding the whole sex-thing gets a little bit more awkward than it already was.\
+Updates: Every two days
+
+[Dishonest Honesty](https://tapas.io/series/Dishonest-Honesty)\
+Gag a day. And now, it isn't funny.\
+Updates: Daily
+
+[Dragon Husbands](http://dragonhusbands.com/)\
+Fairy tale creatures and gays.\
+Updates: The story is complete
+
+[Draw Me](https://tapastic.com/series/Draw_Me)\
+An artist stalks a track athlete to draw his butt and who cares about the plot, everyone is pretty, you like pretty boys don't you?\
+Updates: No regular update schedule
+
+[**Easy**](http://easythecomic.com/)\
+A sexually repressed closeted teacher decides to experiment, plus a former student of his that works in a sex stop.\
+Updates: Allegedly on Wednesdays.
+
+[**Eclipse of the Sun**](https://tapas.io/series/Eclipse-of-the-Son/info)\
+Dark skinned twink gets hunted down.\
+Updates: Mondays, Wednesdays and Fridays
+
+[**The Elduin and Donestan Chronicles**](http://trickster-book.com/lostinthesnow/archive/act1eng/1.html)\
+A noble and a lumberjack looking guy are stuck in a cabin, so they fuck.\
+Updates: No regular schedule.
+
+[**End of Main**](https://tapas.io/series/The-End-of-Main)\
+Illiterate junkie prostitute meets a priest in a bus, plus badly drawn sex.\
+Updates: Twice weekly
+
+[**Ennead**](https://bato.to/series/79851/ennead-mature)\
+Hot Egyptian gods intrigue against eachother, but mostly against Seth.\
+Updates: Roughly every week and a half.
+
+[**Enoka**](https://tapas.io/series/Enokan)\
+A demonic looking creature is on the loose and hunters seem to be its prime target. One hunter in particular, Reider Hawthorn, briefly comes face to face with this beast. Luckily, he survives but what will happen when this monster comes back for more?\
+Updates: Weekly
+
+[Erebus](https://tapas.io/series/Erebus)\
+Only one can be King... Erebus tells the story of second-born Prince Casimir and his search for the power to overthrow his own brother.\
+Updates: Wednesdays
+
+[Espaced](http://espacedcomic.tumblr.com/)\
+Middle school kids get themselves into trouble in their small Swedish town, while visiting alien hunters investigate a local alien infestation. Told entirely in animated GIF format.\
+Updates: On hiatus
+
+[**Ethemeral**](http://ephemeralcomic.com/)\
+The story of people genetically engineered to be prostitutes in order to immunize soldiers fighting monsters.\
+Updates: Sunday
+
+[Everyone Hates Debate Club](http://everyone-hates-debate-club.smackjeeves.com/)\
+Swimmer highschool fag crushes over his qt blonde best friend; given the banner says "BL" they're probably gonna fug\
+Updates: No regular update schedule
+
+[**Exorcism Academy**](http://ea.asmodrawscomics.com)\
+Like a bara version of Starfighter, but less rapey\
+Updates: Allegedly Saturday
+
+[Eyes on Me](https://tapas.io/series/eyesonmecomic)\
+Evan forgets his keys(once again) and on his way to find them he didn't expect to find such a cute guy at the door... even less for said guy to be half naked and interested in him for no reason\!\
+Updates: Twice a month
+
+[Falling from Cloud Nine](https://tapas.io/series/ffc9/info)\
+Souh is closet gangsta, Hiroki is closet gay. Or maybe it's vice-versa, I don't remember.\
+Updates: Weekly (Allegedly)
+
+[Far Out](https://tapas.io/series/Far_Out/info)\
+It's 1975, and Joel "Chevelle" Ramirez is a 27 year old bounty hunter and part-time monster hunter just trying to make a quick buck. One day, he gets mortally wounded during a job by a target. Of course, his savior ends up being a nature-loving monster\!\
+Updates: No regular update schedule
+
+[Flourishing Flower](https://tapas.io/series/Flourishing-Flower)\
+It's about a guy who one day happens to come across a flower shop with his sister and gets a bouquet from the guy who works there and they grow close\
+Updates: No regular update schedule
+
+[Flowerpot](http://flowerpot.smackjeeves.com/)\
+Guy who grows flowers out of his head is courted by guy who used to have one growing out of his ear\
+Updates: Updates on Tuesdays and Saturdays
+
+[Fluxa](https://tapastic.com/series/FLUXA)\
+Callipus is being chased by the police after hacking into one of the largest existing corporations. During his escape, he meets a mysterious boy who seems somewhat suspicious. After being saved by him, the two start working together.\
+Updates: Fridays
+
+[Friends Til Death](http://www.friendstilldeath.com/comics/)\
+They're friends, until they die.\
+Updates: Whenever.
+
+[From Friendship comes Love](https://tapas.io/series/From-friendship-comes-love)\
+Alex returns home after six years away.\
+Updates: Once a week
+
+[Full Spectrum Therapy](http://fst.smackjeeves.com/)\
+A supernatural body-horror drama set in a city in the American west struggling to recuperate 30 years after an alien invasion.\
+Updates: The story is complete
+
+[The Gardener](http://thegardener-comic.com/archive/chapitre-1/)\
+A rich man falls in love with the manor's gardener.\
+Updates: Weekly
+
+[**Get Your Man**](http://getyourmancomic.tumblr.com/)\
+A comic about a Mountie and his Scottish doctor (boy)friend! These characters exist in several, well, you could call them Alternate Universes.\
+Updates: No regular update schedule
+
+[George and Johnny](https://tapastic.com/series/George-and-Johnny)\
+A straight-laced boy finds an unlikely friendship in a rebellious transfer student and they'll probably kiss after like 25 chapters.\
+Updates: No regular update schedule
+
+[The God in the Field](https://tapastic.com/episode/330231)\
+The story of Hades and Persephone, but shotacon.\
+Updates: No regular update schedule.
+
+[Go to Church](http://gotochurch.smackjeeves.com/)\
+Mason is in love with his mother's boyfriend. That motherfucker needs Jesus.\
+Updates: On hiatus
+
+[Griefer Belt](http://grieferbeltcomic.tumblr.com/)\
+A slice of life comic about gay criminals who deal in harvesting and trading human organs. NSFW due to gore rather than fucking.\
+Updates: Tuesday and Friday
+
+[Guard Dog](https://tapas.io/series/Guard-dog)\
+Post-Apocalyptic gays.\
+Updates: Every few days or so
+
+[HAMUS](https://tapas.io/series/hamus/) \
+Hamus has a strange item that gives his unfinished robot enough power to be functional, that's when a cursed boy finds out about it and tries to take it from him at all costs.\
+Updates: Weekly
+
+[**Handcuffs**](https://tapastic.com/series/Handcuffs)\
+Yrkki sold drugs to a stranger guy. That wouldn't be nothing new for him, but this guy was a cop\
+Updates: The story is complete.
+
+[**Happy End**](http://happy-end.smackjeeves.com/)\
+Dude can't get over some childhood crush so he deals with it by fucking prostitutes and taking drugs\
+Updates: No regular schedule
+
+[Hare and Bunny](https://tapas.io/series/Hare-and-Bunny)\
+Story is simple, student falls in love with other student. That's the premise\!\
+Updates: The story is complete
+
+[Hazeshift](https://tapas.io/series/HAZESHIFT/info)\
+In the dystopian aftermath of a post-WW3 scenario which leaves much of mankind disfigured from environmentally induced birth defects, a boy from a designated "safe city" befriends another boy from the neighbouring slums.\
+Updates: No regular schedule
+
+[Hazy London](http://www.hazylondon.com/comic/001)\
+Toby is a guitarist in a band, and his gf breaks up with him. He decides to mix things up a bit and starts dating the drummer, Mark, and hijinks ensue.\
+Updates: Monday, Wednesday, Friday
+
+[Heartstopper](https://tapas.io/series/Heartstopper)\
+Crushes in a British public school. But not ToY. Sadly, becomes just as boring as ToY after they get together.\
+Updates: Thrice a month, on the 1, 11, and 21st.
+
+[**Heavy Horns**](https://tapastic.com/series/Heavy-Horns)\
+QT model with horns (birth defect) gets picked up by a muscular hairy ginger at a bar and they start dating\
+Updates: No regular update schedule
+
+[Helix](http://www.helixcomic.com)\
+Rich/noble bloke takes in a guy off the street to be his bodyguard because the guy fights like a beast.\
+Updates: Every Friday or Saturday
+
+[**Hell Eyes**](http://helleyes.smackjeeves.com/chapters/85021/volume-1/)\
+Post apocalyptic world with demons and angels\
+Updates: Twice a week
+
+[Hell Hounds](https://tapas.io/series/Hell-Hounds)\
+Hell Hounds is the story of Payne, Phury and Asoro. Hell hounds and an angel respectively, there should be little cross over between these creatures; but with Asoro on his own, the boys can't help but bring him home. While something more may blossom between the three men, Heaven and Hell can't possibly just let things be.\
+Updates: Wednesdays
+
+[Helpless Oneechan Next Door](https://tapas.io/series/helplessoneechan)\
+Typical yuri fluff, now in webcomic format: Ume is a dependable first-year who lives next door to an older recently graduated student, Saki, who can't seem to take care of herself at all.\
+Updates: No regular update schedule
+
+[**Hendrix and Julian**](http://hendrixandjulian.smackjeeves.com/comics/2165716/page-1/)\
+Guys with ridiculously big eyes and long eyelashes hate eachother but end up in locked in a storage closet and one of them ends up preforming fellatio?\
+Updates: Rarely
+
+[Heir's Game](https://www.webtoons.com/en/drama/heirs-game/list?title_no=1445)\
+When a new heir to the duchy of Belluna comes of age, there is held the Heir's Game: a brutal series of duels to determine the heir's bodyguard. When Theuden, the new heir, meets Isran, a quiet duelist with a mysterious past, their love will threaten to change everything.\
+Updates: Mondays
+
+[HEW](https://tapas.io/series/HEXwebcomic)\
+A young tracker stumbles onto the trail of a dangerous species of animal that may be more than it seems. This leads him to cultivate a relationship with a gifted being called a Warmith who is the only one of his kind.\
+Updates: Every two weeks or so
+
+[Hey I'm Gay](https://tapastic.com/series/hey-im-gay)\
+Slice of life moments from a gay guy.\
+Updates: No regular update schedule
+
+[High Class Homos](https://www.webtoons.com/en/challenge/high-class-homos/list?title_no=335840)\
+Webtoon where a lesbian princess and a gay prince from two different kingdoms try to marry one another because they live in a society.\
+Updates: No regular update schedule
+
+[High School Bites](https://tapas.io/series/High-School-Bites/info)\
+Supernatural (and gay) shenanigans happen in a town being overrun by skin stealing lizard people\
+Updates: Weekly
+
+[Hive Heart](https://m.tapas.io/series/hiveheart)\
+Interspecies insect gays, with a bee and an ant in human form.\
+Updates: Monday, Wednesday, Friday
+
+[Hologram](http://hologram.smackjeeves.com/)\
+A hologram hires a prostitute, despite not having a physical body\
+Updates: The story is complete.
+
+[Hotblood](http://hotbloodcomic.com/)\
+Horse fucking.\
+Updates: The story is complete
+
+[Hotblood: Zarco](http://hotbloodzarco.com/)\
+Horse Fucking II: The Fuckening.\
+Updates: Wednesday
+
+[**The Hunt**](https://tapas.io/series/TheHunt)\
+From the creator of Bird Twinks, AKA Avilae, comes Gay Buzzfeed Unsolved\
+Updates: Fridays (When she gets to it)
+
+[Icarus](http://fifty-three.net/icarus/)\
+Two dudes who have no idea what the hell they're doing. Kolya wants to fly, Ptichka wants to go home, and neither of those things seem likely to happen\
+Updates: The story is complete.
+
+[Icebreaker](https://tapas.io/series/Icebreaker)\
+Quiet and hot brown-haired hockey player is helped out by outgoing and faggy blond-haired figure skater after a teammate hits him. Feelings may ensue. Possibly set in Minnesota.\
+Updates: No regular update schedule
+
+[I Fell in Love with a Gangster](https://tapas.io/series/I-fell-in-love-with-a-Gangster)\
+Takeshi is a grumpy guy who doesn't trust in the people because of his past, but What will happen when a new student with a magnet to get into trouble appears in his life?, Will Affect the normal life of Takeshi?\
+Updates: Allegedly weekly
+
+[I hate you](https://tapastic.com/series/I-hate-you1)\
+When a drunk Momo signs a contract he becomes Kurokawa's pet for a whole month.\
+Updates: Usually daily
+
+[**im|mortal**](https://tapas.io/series/im_mortal/info)\
+Koschey the Immortal and Ivan Tsarevich get gay.\
+Up|dates: We|ekly
+
+[Jamie](https://tapas.io/series/Jamie)\
+Adorably awkward freshman kid meets cooler senior guy, spaghetti spilling ensues. Now new and improved (Meaning they got rid of everything good about it).\
+Updates: No specific update time
+
+[**Jason**](http://jasoncomic.smackjeeves.com/)\
+Jason is in his first year of university and is torn between two guys, one from his past and the other from the present. All while recovering from stuff that happened in between them.\
+Updates: On hiatus
+
+[Java Bonds](https://tapas.io/series/Java-Bonds)\
+Henry's life consists of self-chosen lonely cigarette or coffee breaks and friends he shouldn't fall for. Sadly not about computer programmers falling in love.\
+Updates: So rarely that it's basically in a perpetual hiatus.
+
+[Jeremiah](http://www.jeremiahcomic.com/)\
+I don't even...\
+Updates: The story is complete
+
+[Lake Penake](https://tapas.io/series/Lake-Penake/info)\
+Fawn moved to Lake Penake after an attempted murder left his body broken and his life in shambles. He awoke from the incident with the ability to see grotesque spirits. It's a gay Sixth Sense, with lots of gore.\
+Updates: Weekly
+
+[Land Underground](https://tapas.io/series/LaNd-Underground)\
+The story about the guy who said "I love you" at the subway station.\
+Updates: Weekly
+
+[Leftovers](http://leftovers-comic.tumblr.com/)\
+The lives of four childhood friends as they struggle to overcome love, loss, and the overwhelming need to find their place in the world\
+Updates: Wednesdays
+
+[Lies Within](http://lieswithincomic.com/)\
+Yet another fucking demon/vampire comic.\
+Updates: Fridays
+
+[Life Outside the Circle](https://www.webtoons.com/en/romance/life-outside-the-circle/list?title_no=1260)\
+Hunky hipster from Helsinki moves to the snowy countryside, full of misconceptions on how #authentic it's like. His neighbor, a single dad hillbilly, falls for him real quick, but is really awkward around his crush, and finds out the difficulties of no longer passing for straight. Lotsa humor, lotsa feels.\
+Updates: The Story is complete
+
+[**Little Earthquakes**](https://tapas.io/series/Little-Earthquakes/info)\
+Ryan is an amateur musician with a lot of friends and no future plans. He doesn't work, engage in long lasting relationships, or take anything seriously, What he does do, is fall in love with pretty much every guy he sets his eyes on - including the stranger he once banged in a motel and who he knows absolutely nothing about.\
+Updates: Every three weeks
+
+[Love at First Sight](http://www.smackjeeves.com/comicprofile.php?id=163543)\
+Sato is pretty simple guy that just doesn't think much before he speaks... One day he tells Kenichi he is "beautiful" without even realizing he is talking to another guy!! After that incident pair become friends... Or maybe more?\
+Updates: In large chunks, every so often.
+
+[Love Sick Diaries](https://thelovesickdiaries.tumblr.com/)\
+Guilty pleasures, hidden romances, and sexual fantasies are the best things of high school; for Matt Bensen, however, it's torment. The reoccurring thought of happiness soars through his mind everyday. His main dilemma, wishing that his boyfriend, Dylan, can come out openly gay\
+Updates: Regularly
+
+[Lovestruck](https://www.webtoons.com/en/challenge/lovestruck/list?title_no=404284)\
+Typical fag drama in high school and whatever\
+Updates: Weekly
+
+[Mackie](https://tapas.io/series/Mackie/info)\
+Twink wants to kill his dad and runs to his morbid ex-boyfriend for help. Feelings may ensue? That or murder. Made by mackieanon, a brown twink who posts on /wcg/.\
+Updates: Several times a week.
+
+[Magical Boy Basil](http://magicalboybasil.com/chapter-1/)\
+15 year old Basil moved into a new, possibly haunted, house with his parents and brother. First night there he has a weird dream with a qt guy in it, who's literally called 'White Knight'. Weird shit starts happening and Basil totally wants to feel White Knights sword.\
+Updates: Fridays
+
+[Marine Boy](https://tapas.io/series/Marine-Boy)\
+Dude falls in love in a fugitive merman who escaped his tyrannical father to work as a human in an aquarium.\
+Updates: Weekly (But sometimes biweekly)
+
+[Matias and Anders](http://matianders.tumblr.com/)\
+Finnish uni student wants to get boned by his Scandinavian lit professor.\
+Updates: A few pages a month
+
+[**Meat & Bone**](http://meatandbonecomic.com)\
+Slice-of-life comic following an eclectic group of characters in some hip, Canadian city.\
+Updates: Tuesdays and Thursdays
+
+[Midnight Coffee](https://tapas.io/series/MidnightCoffee/info)\
+Midnight Coffee is the story about two extremely different guys that meet by coincidence and bond over coffee and not so meaningful talks during long winter nights.\
+Updates: Weekly
+
+[Mika](https://tapas.io/series/Mika/info)\
+He was a boy, it was a boy-shaped alien. Can I make it more obvious?\
+Updates: Weekly
+
+[**Mismatch**](https://tapas.io/series/Mismatch-BL)\
+Enemies to friends to lovers at a magic school\
+Updates: No regular update schedule
+
+[**Monsters that Bite**](http://monstersthatbitecomic.tumblr.com/)\
+Gay necromancer has trouble controlling his powers when he gets horny.\
+Updates: No regular update schedule
+
+[Moonflower](https://tapas.io/series/moonflower)\
+A sheltered young mutant meets a soldier who's seen far too much for his short life.\
+Updates: Sundays
+
+[Muted](https://tapas.io/series/muted-comic)\
+Jasper meets a mute gay.\
+Updates: Twice a month
+
+[My Dictator Boyfriend](https://www.webtoons.com/en/comedy/my-dictator-boyfriend/list?title_no=1391)\
+Aka greenhorn closeted dictator falls in love with his bodyguard\
+Updates: Thursdays and Sundays
+
+[My Stereo Robot](http://mystereobot.smackjeeves.com/)\
+In the city of Voxen Tin, Infinity, an odd looking stereohead, tries to live his life as best as he can, along with his partner, Cloudburn, and his cousin, Ohm.\
+Updates: The story is complete
+
+[Neighbor](http://slashpaloozawebcomics.tumblr.com/)\
+Teenage boys (With actual body hair for a change) become neighbors.\
+Updates: Almost never unless you pay up
+
+[**Nine Stones**](https://m.tapastic.com/series/NINE-STONE)\
+Comic about drug lords son who is schizophrenic I think and fucks some drug packer. NSFW due to torture porn, not regular porn.\
+Updates: Every few days
+
+[**Ninety Nine Righteous Men**](http://ninetyninerighteousmen.webcomic.ws/)\
+A trio of literal jesus-fags enter a hate/lust triangle when one of them gets possessed by the devil\
+Update: The story is complete
+
+[No End](https://www.noendcomic.com/)\
+Zombie comic with gays in it.\
+Updates: Sundays
+
+[**Not Serious about Serious**](http://www.webtoons.com/en/challenge/not-serious-about-serious/list?title_no=83292)\
+A story about two friends, one "bi" and one curious, set in Russia.\
+Updates: No regular schedule, updates in chunks
+
+[Nurse's Station](https://tapas.io/series/Nurses-Station)\
+Kairis, an overly affectionate and curious guy, is a physical education professor at his daughter's middle school. Due to an injury when he was in his prime, he frequently visits the school nurse in order to manage recurring pain. However, when the school introduces a new head-nurse on campus, Kairis finds a new fascination with the sour-faced man.\
+Updates: Saturdays
+
+[Obnoxious Hero-Kun](http://www.smackjeeves.com/comicprofile.php?id=146954)\
+A reluctant romance between the obnoxious hero and his classmate.\
+Updates: Tuesdays
+
+[O Human Star](ohumanstar.com/)\
+Robots and shit.\
+Updates: The story is complete.
+
+[OMG Check Please](http://checkpleasecomic.com/)\
+Gay figure skater joins his university hockey team. It's a story about hockey and friendship and bros and trying to find yourself during the best 4 years of your life.\
+Updates: The story is complete.
+
+[The One Who Loved You From Behind](https://tapastic.com/episode/400295)\
+Boy has an "online-girlfriend" who is actually a boy in a wheelchair who goes to his school\
+Updates: Wednesday
+
+[Orange and Lemon](https://tapas.io/series/Orange--Lemon-English)\
+Luca and Ander are polar opposites. Between heartbreaks and coincidences, they'll discover that love can have a very different colors.\
+Updates:Every two weeks or so.
+
+[Orange Hickey Dad](https://tapas.io/series/OHD)\
+A short story about italian food, falling in love and orange hickeys. Mama mia, that's a spicy meatball.\
+Updates: Twice a week
+
+[Our First Mistake](https://www.smackjeeves.com/discover/articleList?titleNo=301230)\
+High school friends go to college, and one gets a roommate they have friction with\
+Updates: No regular update schedule
+
+[Our Heroes](https://tapas.io/series/Our-Heroes)\
+What if the Purple Man was a gay teen going to a school for superheroes?\
+Updates: Once a week
+
+[Out of the Blue](https://tapastic.com/series/OutoftheBlue)\
+Boy in the late 40s meets merman (merboy?) at the lake\
+Updates:Sundays (Usually)
+
+[Paper Roses](https://tapas.io/series/Paper-Roses)\
+Murderous robot shota that everyone isn't freaking out about for some reason???\
+Updates: Frequently
+
+[**Paradox**](http://paradoxcomic.smackjeeves.com/)\
+Another comic about prostitues, this time as elves or some shit.\
+Updates: The story is complete
+
+[A Peaceful Min](https://tapas.io/series/Peaceful-Mind)\
+Eunwoo isn't the regular boy, even though he appears to be. He has a power, the ability to read minds. He'd lived his whole life dealing with it without problems until a boy called Hyun-wook enters his life and changes it forever.\
+Updates: Every five days
+
+[Perpendikular](https://tapastic.com/series/Perpendikular)\
+Two high school boys and a lot of unresolved sexual tension. Featuring everyone's favorites: the shy, in the closet jock; and the slut\
+Updates: Allegedly, weekly
+
+[Plain Boy and Prince](https://www.webtoons.com/en/challenge/plain-boy-prince/list?title_no=196498)\
+Obnoxious Hero-Kun redux.\
+Updates: No regular update schedule
+
+[Platinum Black](http://platinumblackcomic.com)\
+A hopelessly shy but legendary fighter starts a relationship with a famous actor on the monster-filled island of allemune.\
+Updates:No regular schedule
+
+[Pretty Mouth](http://www.prettymouthcomic.com/)\
+Monster boys fucking, angsting, probably hooking up again later.\
+[Prequel comic](http://www.prettymouthcomic.com/?webcomic1=the-magpie)\
+Updates: The story is complete.
+
+[Prince of Ovale](https://tapas.io/series/Prince-of-Ovale)\
+Eriol was an Emerian god who traded his Eternal Energy to revive his fallen lover. Under the Heaven Rules, they were destined to see each other again 2000 years later. But it wasn't an easy feat, some evil forces intended to stop them. Would he finally able to find and remind his lover of their destiny before the time runs out?\
+Updates: Once or twice a week
+
+[Psychometric](http://psychrometric.smackjeeves.com/)\
+It's gays.... in spaaaace! Also there's some genocide plot they're trying to prevent or something.\
+Updates: Sundays
+
+[Quick$silver](http://www.quicksilvercomic.com/)\
+Crime and debauchery in the literal underground of Las Vegas.\
+Updates: Thursdays
+
+[Rainflowers](http://rainflowers.smackjeeves.com)\
+A clueless, but cheerful guy who falls in love with a temperamental, hard-working flower-lover\
+Updates: The story is complete
+
+[Raise a Bat](https://asclepiasscans.wordpress.com/projects/raising-a-bat/)\
+Korean, new transfer student befriends weird vampire boy and feeds him blood/takes care of him and they ~fall in love~ (sounds generic but it's well-written)\
+Updates: The bat has been raised
+
+[**The Reaper and the Waiting**](https://www.webtoons.com/en/challenge/the-reaper-and-the-waiting/list?title_no=311439)\
+About a Grim Reaper and a mysterious soul that follows him around everywhere.\
+Updates: Monthly
+
+[**Red Haired Boy**](https://tapas.io/series/The-Red-Haire)\
+Kid with dead parents meets someone.\
+Updates: No regular update schedule. Will probably stop updating in the near future.
+
+[Revelations of Eros](http://revelationoferos.smackjeeves.com/)\
+Mexican migrant visits American university\
+Updates: Sundays
+
+[Ride or Die](https://www.rideordiecomic.com/comic)\
+After discovering his mother's forgotten muscle car, Lucky fixes it with the help of his hot-headed, former-crush named Vick and is launched into the world of street racing in an effort to learn more about her. It's Christine meets Ghost Rider meets Fast and Furious but gayer.\
+Updates: Every two weeks.
+
+[**Robber Robert**](http://robberrobert.orgymania.net/)\
+Absurdist alien fucking.\
+Updates: Mondays (Allegedly)
+
+[Rock and Riot](https://tapastic.com/episode/186441)\
+LGBTQ+ 'gangs' in the 1950s, very docile. It's a comedy/slice of life comic that touches occasionally on relationships\
+Updates: Sporadically
+
+[Ruby Slippers](https://rubyslipperscomic.tumblr.com/)\
+Space Opera with eventual gay\
+Updates: Sunday
+
+[Sakana](http://www.sakana-comic.com/)\
+Japanese gays at the fish market.\
+Updates: Tuesdays and Fridays. In hiatus since 02/2020
+
+[Same Shit, Different Day](https://tapastic.com/series/Same-Shit-Different-Day)\
+Semi-autobiographical account of the artist's interactions with his boyfriend\
+Updates: No regular update schedule
+
+[Sarota Springs](https://m.tapas.io/series/Sarota-Springs)\
+An author with a secret living secretly in the sticks gets discovered.\
+Updates: Weekly
+
+[Sea Steps](https://tapas.io/series/Sea-Steps)\
+A comic made by one of us. A man with no memories of how he got there wakes up on a raft in the middle of the ocean.\
+Updates: No regular schedule. Assume that it will abruptly when the creator gets a bf.
+
+[Serendipity](https://tapastic.com/series/serendipia-english)\
+The act of finding something valuable or delightful when you are not looking for it. Spencer and Colin are about to experience this.\
+Updates: Weekly
+
+[Sfeer Theory](http://sfeertheory.littlefoolery.com/)\
+A school of academic magic in an empire that's struggling to maintain its control over neighboring countries. The main character is super gay.\
+Updates: No regular update schedule
+
+[Shaderunners](http://www.shaderunners.com/comic/chapter-1-cover)\
+A group of bootleggers who steal bottled shade from rich aristocrats in order to show them off in illegal speakeasies\
+Updates: No regular update schedule
+
+[Sharpe & Rabbit](https://tapas.io/series/sharpeandrabbit/info)\
+AJ, aka Rabbit, works at a seedy nightclub in order to survive. He dreams of saving up enough money to finally leave town... until the night his former high school math teacher, Mr. Sharpe, walks in. Little did AJ know Mr. Sharpe, is actually a deadly ex-hitman?! When Mr. Sharpe's former employer asks him to take on a dangerous mission, unfortunately for AJ, he's the perfect partner for the task. If AJ helps him, Sharpe promises freedom from his terrible life. It's an offer AJ can't refuse...\
+Updates: Weekly
+
+[Sharp Zero](https://tapastic.com/episode/170613)\
+Super LGBTQA+ superhero webcomic. Sometimes embarrassingly so.\
+Updates: Mondays and Fridays
+
+[Singmire Haze](http://tapastic.com/series/Singmire-Haze)\
+An adult and a changeling in the form of a child.\
+Updates: No regular schedule, but usually once a week.
+
+[**Sign**](https://mangadog.club/read/sign-ker/vol1-ch1/2326.html)\
+A manhwa in which a part-timer works at a café and can't help getting turned on by his deaf boss's voice.\
+Update: No regular update schedule
+
+[Sing the Moon Down](http://singthemoondown.smackjeeves.com/)\
+Ginger twink runs a witchery in a small town, meets a long haired burly werewolf.\
+Updates: The story is complete.
+
+[**Sk8terboi**](https://tapas.io/series/Sk8trboi)\
+A webcomic about preppy kids and underdogs. No relation to the Avril Levigne song.\
+Updates: Weekly
+
+[Society of Vice](http://www.sovcomic.com/)\
+Follows the lives of several sexually-troubled people who meet up in a support group held at a fetish bar\
+Updates: On hiatus
+
+[Something like Summer](http://www.gaywebcomics.com/)\
+A gay YA novel, made into a webcomic for some reason.\
+Updates: Weekly
+
+[**Space Jinx**](http://misadventurecentral.com/)\
+Space soldier accidentally orders a sexbot, they fuck around with each other and their other roommate. Dicks everywhere.\
+Updates: Rarely
+
+[Sparks](https://tapas.io/episode/1817069)\
+Graduation is only a few days away, and the days are numbered for Philo- a young Satyr about to finish dead last in his class. When he's paired together during training with Atlas- the aloof star student- a magical accident will set events into motion that neither of them could have possibly predicted.\
+Updates: Mondays and Fridays
+
+[**Spectre**](spectrecomic.com/index.html)\
+Gay guy is kidnaped by an evil organization. Rape and torture ensues.\
+Updates: Rarely. Was on hiatus for well over a year.
+
+[SPF 100+](https://tapas.io/series/SPF-100/)\
+Gay shota vampire falls in love with human surfer boy.\
+Updates: Sundays (Possibl)
+
+[Springtime of Yuuth](https://tapas.io/series/Springtime-of-Yuuth)\
+Cuddle porn.\
+Updates: No regular update schedule
+
+[**Spurs and Stripes**](http://www.spursandstripescomic.com/)\
+Emoboy Ultrafag works in a ranch in the country to pay for some damage he did. Owner's son is in charge and a closeted hot one-eyed cowboy of a few words with a short temper. Closeness and sexual tension ensue.\
+Updates: The story is complete
+
+[Squirrel Prince](http://www.mediafire.com/download/zgz3w61mxevqj97/The+Squirrel+Prince+by+Duckpatch.rar)\
+Crown prince goes into magic forest to save kingdom, meets guy cursed as a squirrel, and has to solve vague riddles\
+Updates: The story is complete
+
+[**Starfighter**](starfightercomic.com/)\
+It's about gay sex. IN SPAAAAAAAAACE! We don't care about the story as long as she keeps drawing porn.\
+Updates: The story is complete.
+
+[Stolen](http://gestohlen.smackjeeves.com/)\
+Everyone is gay, works out, has great bodies, and wears skin tight clothing. Also I think there's a plot?\
+Updates: Sundays
+
+[Suave and Rudy](https://tapastic.com/series/Suave-X-Rudy)\
+Two people with nothing in common who achieve a love that will transcend time.\
+Updates: No regular schedule
+
+[The Summer Hikaru Died](https://mangakakalot.com/manga/au927884)\
+Japanese rural backwoods gay horror. Hikaru is dead, but his body and love for Yoshiki isn't.\
+Updates: Once a month if you're lucky
+
+[Summer Boo](https://tapas.io/series/summerboo)\
+Two dudes who have the hots for each other but won't just come out and say it pretend date and kiss under the pre-text of 'practice' for straight dating.\
+Updates: Updates every Friday
+
+[Sunkissed](https://tapas.io/series/sunkissed)\
+When Stephen, a quiet bookworm from Oregon, gets his admission letter from the University of Hawaii at Manoa he was anticipating some life changes. What he didn't anticipate was meeting Alex, an upbeat and easygoing local who offers to be his guide around the island. After that, it's love at first sight.\
+Updates:Once a week
+
+[The Sun Prince, The Saint, and The Changeling](https://tapas.io/series/the-sun-prince)\
+Holy Roman gays.\
+Updates: Wednesdays
+
+[Sunny Side Skies](https://tapas.io/series/sunnysideskies)\
+The story of an unenthusiastic barista and a fluffy college student.\
+Updates: Twice a week.
+
+[Tea For Two](https://tapas.io/series/Tea-For-Two/info)\
+Two boys. One mage, one human. Both terrible at romance. Hurt by others in the past, Oscar and Ezra are wary to love again. But together, they might be able to mend old scars and form new, happier memories. And where else would you rather be for that besides Fawkes' Flowers - the magical florist and tea emporium?\
+Updates: Weekly
+
+[Teddyboy](https://tapas.io/series/Teddyboy)\
+Awkward twink with a crush.\
+Updates: Allegedly weekly
+
+[The Doctors are Out](https://www.webtoons.com/en/romance/the-doctors-are-out/list?title_no=1910)\
+A vet opens up his new clinic next to a health clinic run by a doctor who coincidentally shares a similar name. Rivalry ensues.\
+Updates: Mondays\
+
+[Theurgy](http://theurgycomic.com/post/152367647450/)\
+A college kid who summons a hot demon with his friends and doesn't know what to do with him now that he's there. Unoriginal but cute.\
+Updates: Thursdays
+
+[**This Fleeting Warmth**](https://tapas.io/series/This-Fleeting-Warmth)\
+A story about a young rentboy who's been circling all night long trying to find warmth in strangers, yet he knows it wont last. As the endless nights stagger along, he becomes more certain that he's a lost cause. Just as he was about to lose hope, something unexpected comes his way.\
+Updates: No regular update schedule
+
+[This is Not Fiction](http://www.thisisnotfiction.com/)\
+A guy falls in love with an anonymous romance novelist.\
+Updates: Mondays
+
+[A Thousand Yards](https://www.webtoons.com/en/challenge/a-thousand-yards/list?title_no=204933)\
+Military romance tragedy\
+Updates: No regular update schedule.
+
+[Tied in Red](http://tied-in-red.smackjeeves.com)\
+Slice of life BL about two normal guys tied together by a string, who begin falling for each other.\
+Updates: Thursdays
+
+[To Be Honest](https://tapas.io/series/To-Be-Honest/info)\
+Teenagers discovering new things about friendship, love, forgiveness and most importantly, themselves.\
+The story is set in Germany, 2009, and occasionally deals with dark themes & topics.\
+Updates: No regular update schedule.
+
+[To the Stars and Back](https://www.webtoons.com/en/slice-of-life/to-the-stars-and-back/list?title_no=4047)\
+Introverted and grumpy, 20-year-old Kang Dae spends the majority of his time alone, and he prefers it this way. One day, he gets a very friendly and bubbly neighbor named Bo Seon. Suddenly, his life takes a very different turn.\
+Updates: Every Monday and Thursday
+
+[Tobias and Guy](http://tobiasandguy.tumblr.com/)\
+A guy and his demon boyfriend.\
+Updates: The "story" is complete
+
+[**Together at the End**](http://togetherattheend.smackjeeves.com/comics/1856874/thanks/)\
+Dude 1 finds dude 2 during zombie apocalypse, then kill a rapist, and then agree to travel together.\
+Updates: Rarely
+
+[Torrent](https://tapas.io/series/TORRENT)\
+Kakyus most favourite pastime is teasing Noél in any which way possible. The best way to do that is feeding him unwanted information about sex.\
+Updates: Every few days
+
+[**Tosi Huono Yaoi Sarjis**](http://tosihuonoyaoisarjis.smackjeeves.com/comics/)\
+A weird yaoi satire about some rockstar who goes out with an uguu desu artist. Also contains lesbians, and apparently the rockstar is a demon.\
+Updates: Frequently, but no specific day.
+
+[**Toxic For You**](https://tapastic.com/series/toxicforyou)\
+The stumbles of love and relationships, and the difficulties of mental illnesses.\
+Updates: Biweekly
+
+[Transfusions](http://transfusionscomic.com/)\
+It's about vampires and discovering you like the dick, but the protagonist is totes not gay.\
+Updates: Sunday
+
+[Tripping Over You](trippingoveryou.com/)\
+A dramatic fall from Waifu Tier! Formerly two "Brits" in a boarding school in a relationship. A bit of a slog after relationship begins, but it gets better in the last half once they graduate and move in together. Then the comic suddenly ends as some interesting things are about to happen.\
+There is a sequel comic called "Living In Future Tense" which follows an older Milo and Liam that is currently in the planning stage.\
+Updates: The "story" is complete.
+
+[Two Losers from Earth](https://www.webtoons.com/en/challenge/two-losers-from-earth/list?title_no=684794)\
+Winter and Nat, strangers to each other, have embarked on a touristy train ride to the moon and back in the hopes of escaping their problems on Earth. Neither of them really knows what to expect from the trip, but finding a new companion definitely wasn't in the plan.\
+Updates: No regular update schedule
+
+[Two Sizes Too Small](https://tapas.io/series/Two-Sizes-too-small)\
+Size differences, the comic.\
+Updates: No regular update schedule
+
+[Until Sunset](http://until-sunset.smackjeeves.com/)\
+Rich boi and a twunky mermaid he has to nurse back to health\
+Update:Tuesdays
+
+[Valentine](https://tapastic.com/episode/334132)\
+Gay boy wants to date straight boy, straight boy turns him down but decides to be friends. Feelings could happen.\
+Updates: Daily, but with frequent hiatuses
+
+[Vamp Sabbath](https://tapas.io/series/VampSabbath)\
+Vampires and rock bands\
+Updates: Infrequently
+
+[Victim. Gate of Spirits](https://tapastic.com/series/Victim-Gate-of-Spirits)\
+People living in a small village near a huge primordial swamp and how they have to fight the dangers emerging from it.\
+Updates: A few pages a week
+
+[What Happens in Carpediem...](http://whic.smackjeeves.com/comics/)\
+Video game romance.\
+Updates: Every few days while the chapter is going on. Takes fairly long breaks in between chapters.
+
+[**Where Our Ledge Ends**](whole.smackjeeves.com/comics/2187854/title-page/)\
+Rich nerdy white boy bags cute tanned soccer player, lots of kissing and grinding and almost buttsex\
+Updates: No regular update schedule
+
+[**Winter Light**](https://tapas.io/series/Winter-Light)\
+A sweet love story under the snowflakes. a.k.a boy's love Dr. Stone\
+Updates: Weekly
+
+[Wrong Answer](http://wronganswer.smackjeeves.com/)\
+Rich private high school school gay drama\
+Updates: No regular schedule, and every website it was on has been deleted.
+
+[XYventures](http://blackadventurescomic.com/)\
+An angsty brown fucboi Pokemon XY protagonist goes to Kalos to impress a boy, hi-jinks ensue.\
+Updates: No regular schedule.
+
+[Yet Another Fantasy Gamer Comic](http://yafgc.net/?id=1)\
+A D&D satire comic that apparently has one gay character in it.\
+Updates: Almost every day.
+
+[Yin and Yang](https://tapastic.com/series/Yin--Yang)\
+Yin had never felt beautiful until he went to an art exhibition and met a very special someone.\
+Updates: The story is complete
+
+[Your Wings and Mine](https://tapas.io/series/Your-Wings-and-Mine/info)\
+Angel twink falls in love with a demon prince.\
+Updates: The 10th, 20th and 30th of each month.
+
+[2 Slices](http://2slicescomic.com/)\
+Extravert helps a shy guy get a girl, but then falls for the shy guy.\
+Updates: The story is complete.
+
+### Lesbian Tier
+
+[Agents of the Realm](www.agentsoftherealm.com)\
+Mahou shoujo with college aged women and a healthy dose of cynicism.\
+Updates: Tuesdays, Thursdays, Sundays
+
+[**Alien Hand Syndrome**](http://ahs-comic.com/)\
+Two girls in an organization that deals with supernatural stuff.\
+Updates: Whenever.
+
+[Always Human](http://www.webtoons.com/en/romance/always-human/list?title_no=557)\
+In a future where body modifications are easy and commonplace, one girl meets another girl who is unable to use them.\
+Updates: The story is complete
+
+[As The Crow Flies](melaniegillman.com/?p=96)\
+Black lesbian goes to summer camp and stuff. Social justice warriors rejoice.\
+Updates: Every 3 or 4 days
+
+[Beloved](http://manhua-abcd.tumblr.com/tagged/beloved/chrono)\
+A 34 year old doctor accidentally sleeps with a 16 year old student\
+Updates: No regular schedule
+
+[Blue Rock Tapestry](http://ellejohara.com/threads)\
+Two universes with gateways joining them. Basically all the main characters are either lesbian or gay (mostly lesbian).\
+Updates: Allegedly on Monday, Wednesday, and Friday
+
+[Broadside](http://broadsidecomic.com/)\
+A runaway girl stows away on a pirate ship and meets a lot of beefy lesbians.\
+Updates: Saturdays
+
+[**Can't Look back**](http://cantlookback.smackjeeves.com/)\
+Lesbians.\
+Updates: The story is complete.
+
+[ChaosLife](http://chaoslife.findchaos.com/)\
+A semi-autobiographical comic about the agender author and their girlfriend.\
+Updates: Weekly, usually on Mondays.
+
+[**Collar 6**](http://collar6.tumblr.com/)\
+Bondage meets Dragonball Z\
+Updates: Monday, Wednesday, Friday
+
+[**Club**](http://katotochan.deviantart.com/)\
+Two women meet in the bathroom at a club\
+Updates: The story is complete
+
+[Cucumber Quest](http://cucumber.gigidigi.com/)\
+Bunny kids doing bunny stuff. Has a gay princess or whatever, but is mainly focussed on cutesey adventure stories.\
+Updates: Monday and Sunday
+
+[Curvy](http://www.c.urvy.org/cast.php)\
+Sci-fi adventure lesbians.\
+Updates: Friday
+
+[Demon Street](demonstreet.co)\
+A bunch of kids enter in a parallel world with monsters, some of them getting supernatural powers through pacts with "locals" in the process. they're vaguely looking for their families.\
+Updates: Monday and Thursday
+
+[Dicebox](http://www.comic.dicebox.net/)\
+a nomadic married couple travel the galaxy working odd jobs and talking to odd people\
+Updates: Allegedly Thursday, but it isn't always on time.
+
+[Facing the Sun](https://tapas.io/series/Facing-the-Sun)\
+Robot lesbian bodyguards.\
+Updates: No regular update schedule.
+
+[**Flipside**](http://flipside.keenspot.com/)\
+Fantasy comic about a nymphomaniac jester girl, a swordswoman, and the people who go on adventures with them. Occasional nudity, but not much sex.\
+Updates: Monday, Wednesday, and Friday
+
+[Go Get a Roomie](http://www.gogetaroomie.com/)\
+More lesbians. I assume that it involves roomies.\
+Updates: Monday, Wednesday, and Friday
+
+[Hard Lacquer](https://tapas.io/series/HardLacquer)\
+A lesbian spy drama about fighting crime, doing the right thing for the wrong reasons, and getting revenge on your hot evil ex.\
+Updates: Weekly
+
+[**Idolon**](www.idoloncomic.com)\
+Cute innocent school girl gets corrupted by older criminal lesbians? Seems to me that's where it's going.\
+Updates: Monday and Thursdays
+
+[Lady and the Shard](https://gigidigi.itch.io/lady)\
+Lady of the Shard is a comic about an acolyte in love with the goddess she serves.\
+Updates: The story is complete
+
+[Mage and Demon Queen](http://www.webtoons.com/en/challenge/mage-demon-queen/list?title_no=113737)\
+MMO-inspired fantasy land where all the adventurers hope to scale the treacherous Demon Tower and kill the demon queen at the top. But one young mage girl hopes to marry the queen instead.\
+Updates: Thrice a month
+
+[Monster Pop](http://monsterpop.mayakern.com/)\
+World where monsters and humans coexist, but there are big divides between the two. Main character is a gay cyclops. It is also very tumblr centric, so be warned.\
+Updates: Tuesday, Wednesday, and Thursday
+
+[My Impossible Soulmate](https://mis.thecomicseries.com/)\
+A daydreaming Otaku longs to confess her crush to her best friend. Which gets particularly difficult once she's sent to another world.\
+Updates: Monday, Wednesday, Friday
+
+[Obelisk](http://www.obeliskcomic.com/)\
+Evelyn Reuter and her inheritance of her father's business, and all of his secrets along with it. Eve begins to hunt for answers - and finds Margot, the eccentric owner of a curious shop who may not be entirely human (read vampire). Also, it's set in the early 1900s.\
+Updates: Wednesday
+
+[Octopus Pie](http://www.octopuspie.com/about/)\
+Lesbians in Brooklyn, I guess?\
+Updates: The story is complete.
+
+[**The Private Report on My Lesbian Experience with Loneliness**](http://bato.to/comic/_/comics/the-private-report-on-my-lesbian-experience-with-loneliness-r19652)\
+28 year old girl with an oedipus complex decides to lose her virginity to a 30-y/o prostitute. Ten years of depression\!\
+Updates: Ever few weeks, but you have to make an account to read
+
+[Relativity](http://relativitycomic.com/)\
+An old lesbian married couple, one goes into space for 6 months, due to relativity (her ship travels near speed of light) 3 years passes on earth. But shit happened during astronaut's absence.\
+Updates: Currently on hiatus
+
+[Sapphixation](http://www.sapphixation.com/)\
+Lesbian superheroes.\
+Updates: When she gets around to it.
+
+[Serenity Rose](http://www.heartshapedskull.com/serenity-rose/)\
+A cute little gay witch\
+Updates: The story is complete
+
+[**Scrub Diving**](http://scrubdiving.thecomicseries.com/)\
+Mild sci-fi, mildly erotic character-based adventures underwater\
+Updates: Two or three times a week.
+
+[Star Trip](http://www.startripcomic.com/index.php)\
+A woman named Jas who helps an alien named Khut (who is also a starship) escape bounty hunters, as they tour the galaxy.\
+Updates: No regular update schedule\
+
+[Starward Lovers](http://starwardlovers.tumblr.com/)\
+To get closer to her mysterious crush, a girl joins her crush's league of alien-fighting undercover agents.\
+Updates: No regular update schedule
+
+[**Sunstone**](http://shiniez.deviantart.com/)\
+Two women meet on an s/m forum and decide to meet in person.\
+Updates: No regular update schedule.
+
+[Tiger, Tiger](tigertigercomic.com)\
+Tiger is a story of a young noble lady, who steals her brother's identity and his ship to sail across the world to find love and adventure, and to write a book about her favourite subject: the fascinating life cycle of sea sponges! Contains occasional nudity.\
+Updates: Monday, Wednesday, Friday
+
+[A Woman of Dust](http://awomanofdust.smackjeeves.com/)\
+Two female god-like creatures who live forever. One traveler type meets a guardian type and things go from there.\
+Updates: The story is complete.
+
+[YU+ME](http://rosalarian.com/yume/)\
+Surreal lesbian romance story.\
+Updates: The story is complete
+
+### Trans Tier
+
+[Becoming Me](http://bmcomic.tumblr.com)\
+A comic about Mia, a trans girl in her twenties, who fresh out of college and finally in hormone therapy, is slowly exploring her new life\
+Updates: Tuesdays and Thursdays
+
+[Beneath the Woods](https://tapas.io/series/beneaththewoods)\
+While trying to find his missing father, Max ends up in an another dimension with demons and other horrors.\
+Updates: Tuesdays (Usually)
+
+[Eerie Crests](https://tapas.io/series/Eerie-Crests)\
+Here's the gist of it. Dallas Margolin is trans, jewish, depressed & friendless in Oregon. Then he meets Poppy Rajkhowa & Malek Solh, who become his best friends. Dallas develops feelings for Malek.( And it looked like Malek was reciprocating). But then Malek goes missing.\
+Updates: Monthly
+
+[**Feast for a King**](http://ffak.kosmicdream.com/)\
+FFAK is a sci-fi action dark comedy horror erotica.  The story is really nonlinear and jumps around the timeline a lot, some parts ask for re-reading later with new context. Shapeshifting aliens, gay cyborgs, voracious space ships, sex-surgeries, gore, self-cannibalism and true love  can be found on thousands pages of the comic.
+Updates: No regular update schedule, but usually every couple of weeks
+
+[Goodbye to Halos](http://www.goodbyetohalos.com/)\
+After being abandoned my her father at a young age, a gay trans girl makes lots of gay trans friends and goes on a magical adventure.\
+Updates: Tuesday and Friday
+
+[Immortal Nerd](http://www.webtoons.com/en/comedy/immortal-nerd/list?title_no=579)\
+A genderqueer NEET who grew up on a space station gets their immortality and spends it watching cat videos from the old internet 24/7 without eating, sleeping, or dying. Their parents didn't put up with that shit for long, so now they're on earth getting a degree in memes.\
+Updates:Tuesdays
+
+[Is It Summer Yet](https://mentalcrash.deviantart.com/gallery/45551971/Is-It-Summer-Yet)\
+A boy slowly turning into a girl while his roommate slowly falls in love with him.\
+Updates: Rarely
+
+[Knights-Errant](http://sparklermonthly.com/series/knights-errant/)\
+A bisexual female knight disguising herself as a man meets a transmale knight.\
+Updates: No regular update schedule
+
+[Magical Boy](https://tapas.io/series/magicalboy)\
+Not to be confused with Magical Boy Basil. Sixteen-year-old gay trans boy desperately attempts to lead a normal boy's life at his school in Chicago, but is actually the incumbent goddess in a line of descendants of the light goddess, and must fight the forces of evil making their way into our world. This would be hard enough if fighting on behalf of the goddess didn't cause him to transform into an over-the-top over-feminized avatar of her, to his horror.\
+Updates: Monthly
+
+[Man Time!](https://tapas.io/series/mantime)\
+FtM focused gag-a-day except it's "month" instead of "day" and "#relatable" instead of "gag".\
+Updates: Several times per year.
+
+[Neokosmos](http://www.neo-kosmos.com/)\
+A sci-fi adventure webcomic about kids in space. Also they're genderqueer or something, I guess?\
+Updates: No regular update schedule
+
+[The Princess](http://the-princess.funonthe.net/index.php)\
+The story of a transgirl in elementary school.\
+Updates: Mondays and Fridays
+
+[Queermo](http://qmjourney.tumblr.com/)\
+An autobiographical FTM comic that's actually pretty funny.\
+Updates: Wednesday
+
+[Rain](https://rain.thecomicseries.com/)\
+Slice of life comic about a high school trans girl named Rain and her adventures with her friends, who are also mostly queer. While melancholic and dark at times, it's overall pretty wholesome and heartwarming.\
+Updates: No more, completed :(
+
+[Sweethearts of 1989](https://kalematsuba.itch.io/1989nk1)\
+Just a cute romance comic. Also has a super cute mtf character.\
+Updates: No regular
+
+[Trans Girl Next Door](http://www.transgirlnextdoor.com/)\
+Journal comic from a trans girl.\
+Updates: No regular update schedule
+
+[Validation](http://www.validationcomic.com)\
+A transgirl slice of life comic.\
+Updates: Monday and Thursday
+
+[What's Normal Anyway?](http://whatsnormalanyway.net/)\
+The story of an transmale.\
+Updates: The story is complete, according to some asshole in the thread.
+
+[With Great Abandon](http://www.webtoons.com/en/challenge/with-great-abandon/list?title_no=55067)\
+Harry is a gay trans man, Russell is gay cis man, and With Great Abandon is a queer romance set over the course of a year in London. It's the story of their differences, their similarities, and their relationship. A hopeful and kind story. Also food and comics.\
+Updates: Frequently
+
+### Asexual Tier
+
+[Ignition Zero](http://ignitionzero.com/comics/1)\
+Two asexual guys falling in love.\
+Updates: The story is complete
+
+[Shades of A](http://www.discordcomics.com/)\
+Some assexual guy and his kinky friends.\
+Updates: The story is complete
+
+[Supernormal Step](http://www.supernormalstep.com)\
+Ace saves the world with magic\
+Updates: Allegedly weekly
+
+### Bisexual Tier
+
+[Bad,Bad Things](http://www.badbadthingscomic.com)\
+A bunch of gay and/or trans roommates in some kind of fantasy scifi dystopia experience both extreme angst and lighthearted drama\
+Updates: Mondays, with occasional Friday updates
+
+[**Bruno**](http://brunostrip.com/)\
+An introspective young college dropout woman set in the real world.\
+Updates: The story is complete
+
+[**Chester 5000 XYV**](http://jessfink.com/Chester5000XYV/)\
+A wordless erotic sci-fi Victorian romance.\
+Updates: The story is complete.
+
+[Dumbing of Age](http://www.dumbingofage.com/)\
+Slice of life college story.\
+Updates: Daily
+
+[Egs](http://www.egscomics.com/)\
+A comic about a boy, a squirrel girl, a boy that can transform Ranma style, a girl that was born from him getting magicked while transformed, and a shitload of other characters, a large portion of whom are LGBT.\
+Updates: Monday, Wednesday, Friday
+
+[Find Chaos](http://www.findchaos.com/)\
+Features a bunch of lgbt characters with crazy paranormal powers. Good character development, good story line, good art.\
+Updates: Weekly
+
+[Khaos Komix](http://www.khaoskomix.com/)\
+The story of four couples, covering Ls, Gs, and Ts.\
+Updates: The story is complete
+
+[Lovelyss](http://lovelyss.com/)\
+A sexy outer-space nightclub pulp adventure\
+[Prequel](http://www.lovesyck.com/comics/lovesyck/)\
+Updates: The story is complete.
+
+[Questionable Content](http://questionablecontent.net/)\
+The daily lives of a bunch of random people. Contains a lesbian, a bisexual girl, and an MtF transgender person.\
+Updates: Monday through Friday
+
+[**Unknown Lands**](https://tapastic.com/episode/87803)\
+High fantasy adventure??\
+Updates: When they get around to it.
+
+### Tangentially Gay Tier
+
+Comics that aren't focussed on gay stuff, but have gay things included.
+
+[Age of Gray](http://ageofthegray.smackjeeves.com/)\
+Heaven and hell has fallen/risen to earth and humans merge with angels to fight demon baddies.\
+Updates: Wednesday, Friday, Sunday
+
+[Angels in the Field](https://www.webtoons.com/en/challenge/the-angel-in-the-forest/list?title_no=230887)\
+A story about a rat and a mouse who find companionship in raising a child\
+Updates: Tuesdays, but biweekly
+
+[April Flowers](https://www.webtoons.com/en/fantasy/april-flowers/list?title_no=1363)\
+People who hunt demons and a girl named April goes to an academy to learn to exorcise demons and her roommate is a hybrid.\
+Updates: Weekly
+
+[Blaster Nation](http://www.blasternation.com/)\
+The lives of five eccentric individuals. Not completely about gays, but has gay characters.\
+Updates: The story is complete
+
+[Dead City](http://topazcomics.com/deadcity/welcome/)\
+Yet another zombie apocalypse webcomic.\
+Updates: Tuesdays
+
+[Demon Street](http://demonstreet.co/)\
+A boy goes through an entrance to a dangerous magical world, running from deadly creatures and allying with other children who've made pacts to gain magical powers. Features a budding lesbian relationship and a nonbinary character.\
+Updates:Monday and Thursday
+
+[Electric Bones](https://electricbonescomic.com/)\
+From the team that brought you Always Raining Here, it's a space comic that isn't gay.\
+Updates: Weekly
+
+[Eth's Skin](http://www.eths-skin.com/)\
+Fisher named eth accidentally grabs a selkie's skin, and is unable to let go of it to return it. features a nonbinary main character and a mermaid with two girlfriends.\
+Updates: Wednesdays
+
+[Girls with Slingshots](http://www.girlswithslingshots.com/)\
+Follows several friends as they deal with life events like unemployment, marriage, and their sexuality. Jamie is probably bi, Thea and Mimi are lesbian, Erin is Jamie's girlfriend (sometimes?), Darren is gay, rest are kinda normal.\
+Updates: The story is complete
+
+[Green and Gold](https://tapastic.com/episode/445043)\
+Story about adolescents at a german boarding school.\
+Updates: No regular update schedule.
+
+[Gunnerkrigg Court](http://www.gunnerkrigg.com/)\
+A school where weird things happens. The art improves after the first few chapters, just bear with it for awhile.\
+Updates: Monday, Wednesday, and Friday
+
+[Heroic](https://tapas.io/series/Heroic)\
+In a world in which heroes and villains are real, Micky has to deal with the collateral damage every day. His life as a nurse is hard enough, even with his normal patients. But now he also has to treat victims of failed rescue missions or defective death rays.\
+Updates: Twice a week (Allegedly)
+
+[Humor Me](https://tapas.io/series/Humor-me)\
+Highschool life.\
+Updates: Fridays
+
+[It Hurts!](http://gobolatula.com/ithurts/)\
+A silly boy riddled with depression and anxiety named Pasqualo and how he finds his first love, a mysterious yet super kind girl named Aurora. Pasqualo also has lots of friends, including his best friend Allison who's a dirty little munchkin and Tubsy who's a chilled out big fat dude. Over time, strange and crazy things start happening and before you know it, the whole world changes.\
+Updates: The story is complete.
+
+[Kill Six Billion Demons](https://killsixbilliondemons.com/)\
+Starbucks barista conquers the universe via furious dumbassery.\
+Updates: Tuesdays and Fridays
+
+[Lies Within](http://lieswithincomic.com/)\
+Lies Within follows the story of Lysander Farrokh, a 28-year old freeloader whose life changes drastically after getting possessed by a wendigo spirit. With the help of his best friend and neighbor, Simon Isadore, Lysander learns to navigate this tumultuous world of supernatural beings and the war they're fighting against a growing vampire threat.\
+Updates:Fridays
+
+[The Little Trashmaid](https://www.webtoons.com/en/challenge/the-little-trashmaid/list?title_no=300138&page=1)\
+About a mermaid living in a polluted ocean. Features gay side characters.\
+Updates: Every other Friday.
+
+[Miles of Painted Darkness](https://tapas.io/series/Miles-of-Painted-Darkness)\
+Cthulhu mythos, but shotacon.\
+Updates: No regular update schedule
+
+[Minor Acts of Heroism](http://www.minoractsofheroism.com/comics/1012948/m-a-o-h-issue-01-cover/)\
+A bunch of super kids and their parents.\
+Updates: Weekly
+
+[Monsterkink](http://monsterkind.enenkay.com/)\
+A story about humans and monsters living in a country ruled by segregation and inequality." Main character is a social worker just trying to do his job without getting fired.\
+Updates: Tuesday and Friday
+
+[Namesake](http://namesakecomic.com/)\
+A story of fairy tales, ghost, and a magical lesbian couple on the side.\
+Updates: Tuesday, Thursday, Saturday
+
+[**Oglaf**](http://oglaf.com/)\
+Funny comic that almost always involves some sort of sex. Warning: Often contains straight sex.\
+Updates: Sunday
+
+[Paranatural](http://paranatural.net/)\
+A boy moves to a town and finds that he can see ghosts.\
+Updates: Tuesday and Friday
+
+[People I know](http://www.timothywinchester.com/)\
+Gag a day comic from a gay writer.\
+Updates: Often, but no specific day
+
+[Property of Hate](http://tpoh.smackjeeves.com/comics/1456794/the-hook-page-1/)\
+It's a unique look at the hero adventure trope, but using philosophical concepts as characters.\
+Updates: Sundays
+
+[**The Rock Cocks**](http://www.therockcocks.com/comic)\
+A band called the Rock Cocks and the gay CEO that wants to sign them. Contains a lot of fucking, but unfortunately a lot of it is straight.\
+Updates: No regular schedule
+
+[Room of Swords](https://m.webtoons.com/en/sf/room-of-swords/list?title_no=1261)\
+The 34th time Gyrus wakes up in a world ruled by monsters, he still thinks it's his first! Little does he know, he's stuck in a loop until he can survive long enough to collect the treasured "boss sword" from the Boss of Monsters and unlock the mythical Room of Swords before he dies agai- whoops, too late! Well, here's to lucky thirty-five.\
+Updates: Mondays
+
+[Scandinavia And The World](satwcomic.com/)\
+Not strictly /lgbt/, but many of the main characters are gay/bisexual. About the anthropomorphized versions of various countries, particularly the Scandinavian ones.\
+Updates: Irregularly. Usually every two weeks
+
+[Signs](https://tapas.io/series/SIGNS)\
+Not to be confused with the M Night film. A guy with no life is chosen by a secret society of robots. Apparently the artist has drawn gay art of the characters.\
+Updates: Weekly
+
+[Trying Human](http://www.tryinghuman.com/)\
+Interspecies romance blossoms against a backdrop of classic UFOlogy.\
+Updates: Weekly
+
+[Vainglorious](http://www.vaingloriouscomic.com/)\
+When the small dragon Rei decides to challenge his Queen for the throne, he does not expect to get exiled and cursed into human form. Little by little, Rei searches for a cure in the big world outside his nest - making friends, adventures, and headaches along the way.\
+Updates: Mondays and Thursdays
+
+[Warm Blood](https://warmbloodcomic.com/)\
+A really nonsensical story that involves aliens, ghosts, vampires, and talking shrimp. It follows Penny, a new student at Greenwood High, but on her first day there, another student is found murdered and she meets Logan, who admits to being the murderer.\
+Updates: Every few months
+
+[Wilde Life](wildelifecomic.com)\
+Wilde Life is a supernatural adventure/horror series set in a small town in rural Oklahoma. It focuses on stories about creatures from Native American mythology as witnessed and documented by a journalist from Chicago, Illinois.\
+Updates: Monday, Wednesday, Friday
+
+### /wcg/ Tier
+
+Shit we made ourselves
+
+[/lgbt/: The Visual Novel](https://www.youtube.com/watch?v=wgTvDncCwtA)\
+A tense and heartbreaking story about two gendersnakes and their passion and desire to come to terms with their sexuality through the medium of not having sex.\
+Updates: It's just that video
+
+[QTNinjas](https://imgur.com/a/yQywH)\
+I want a comic about gay ninjas that fight crime with the power of sodomy.\
+Updates: It's just those two pages. It was too good for this world.
+
+[West Clark and Georgetown](http://westclark.tumblr.com/)\
+A comic about the various anons that frequent /wcg/. I'm a character in this one.\
+Updates: It updated once, and then never again.
+
+### Gay Death Tier
+
+Comics that were abandoned by their creator, often without a conclusion. Press F to pay your respects.
+
+[+1](http://plus-one.smackjeeves.com/)\
+Slice of life highschool comic. The artist does not know how to draw a penis.\
+Defunct. Formerly Other Comics tier.
+
+[**24 Hours**](http://24hourscomic.smackjeeves.com/)\
+Basically about an 18 year old gay highschooler self destructing. May or may not be a Starfighter ripoff.\
+Defunct. Formerly Other Comics Tier, website died
+
+[**Abel and a Dead Man**](https://tapas.io/series/abel--comic)\
+Soul collector doesn't kill his target and asks him out instead.\
+Formerly other comics tier, has not updated since 2017
+
+[**Arco**](http://arco.smackjeeves.com/comics/2158905/prologue-page-1/)\
+A guy who's obsessed with marine biology in his dream program, but he gets a roommate who knows nothing about marine biology and doesn't want to be there.\
+Updates: Defunct like the rest of smackjeeves
+
+[An Online Thing](https://tapas.io/series/An-ONLINE-Thing)\
+Gay boy's best friend finds his dating profile.\
+Updates: Abandoned
+
+[Assault Affair](https://tapas.io/series/Assault-Affair)\
+Military gays\
+Updates: Abandoned, hasn't updated since March 2019
+
+[Best Friends Forever](http://bffcomic.com/)\
+Muscly student and his tiny billionaire friend have a bromance with unwarranted amounts of sexual tension.\
+Formerly Serious Business Tier, ended with no conclusion
+
+[**Buying Time**](http://buyingtime.the-comic.org/about/)\
+A cyberpunk romance\
+The comic relied on the Flash plug-in and therefore is practically defunct.
+
+[Camellia](https://tapas.io/series/Camellia)\
+Ancient Chinese gays.\
+Updates: Last updated on April 2018.
+
+[Copper Queen](http://copperqueen.thecomicseries.com/)\
+Young woman is forced into servitude at the royal castle, and attracts the attention of the vain queen.\
+Formerly Lesbian tier, ended with no conclusion
+
+[**Dancing on Embers**](http://www.dancingonembers.com/)\
+A romance between some sort of cocky scruffy secret agent type and some foul mouthed twink set in Fascist 1930's Italy.\
+Updates: Formerly Other Comics tier. Went on hiatus in 2016, the site then died.
+
+[Deadlocke Machinist](http://deadlockemachinist.smackjeeves.com/)\
+A boy who can see music in a postapocolyptic western.\
+Defunct. Formerly Other Comics Tier, ended with no conclusion
+
+[Deltram](https://tapas.io/series/Deltrame)\
+Jasper and Reuben have been friends for as long as they can both remember and even though life took them on separate journeys, they still maintained a good relationship.\
+Formerly Gay Tier, abandoned for good.
+
+[Doki Doki Checkmate](http://dokidokicheckmate.blogspot.com/)\
+A prince and the knight sent to kill him.\
+Formerly Other Comics Tier, ended with no conclusion
+
+[**Enthrall**](enthrall.smackjeeves.com/)\
+Vampires and shit.\
+Defunct. Formerly Other Comics Tier, ended with no conclusion
+
+[Fruitloop & Mr Downbeat](http://fruitbeat.smackjeeves.com/)\
+Moot's Gay Adventures.\
+Defunct. Formerly Other Comics Tier.
+
+[Garçon Deux](http://garcondeux.com/)\
+Phil has been standing alone for a while.\
+Defunct. Formerly Other Comics Tier, ended with no conclusion
+
+[Kyle & Atticus](http://kyleandatticus.tumblr.com/)\
+A genderqueer kid named Kyle and a robot named Atticus.
+Formerly Trans Tier, ended with no conclusion
+
+[Lisowski](http://lisowski.thewebcomic.com/chapters/69242/book-one/)\
+Guy who has no feelings suddenly has feelings for guy who takes lots of medication to have no feelings.\
+Defunct
+
+[Lost Boys Academy](http://tapastic.com/episode/70254)\
+The boys at a boarding school for turning gay boys straight.\
+Formerly Other Comics Tier, on permanent hiatus
+
+[**The Maple Effect**](http://themapleeffect.smackjeeves.com/comics/)\
+Two guys inadvertently sharing a summer home. A lot of romantic feelings and such ensues.\
+Finished.
+
+[Stereophonic](http://stereophonic.thewebcomic.com/comics/)\
+In 1966 London, a young homeless pub worker/singer begins sharing a flat with a starving-artist, and they begin falling in love.\
+Formerly Waifu Tier, ended with no conclusion. URL is now dead.
+
+[Taproot](http://taprootcomic.tumblr.com/)\
+A ghost falls in love with a burly flower shop employee who can see dead people.\
+Defunct. Formerly Other Comics Tier, comic deleted
+
+[**Teahouse**](teahousecomic.com/)\
+Awful and shit comic that we laugh at. It's about fancy gay whores.\
+Formerly Shit Tier, the creators posted summaries of how things will end. If only the actually good comics would do the same.
+
+[They Said You Won't Come Back](https://www.smackjeeves.com/comicprofile.php?id=175425)\
+Two male teachers meet in a middle school. Yashiki is an impulsive, unmotivated, and irresponsible young teacher who runs away from any commitment in his life. When Hinagishi - a devoted, responsible head teacher - ends up with Yashiki as his assistant, conflict is inevitable.\
+Updates: Abandoned
+
+[Thomas Is Gone](http://thomasisgonecomic.tumblr.com/)\
+A young heir to a British lordship is kidnapped by a monster, and 47 years later is rescued by the new lord, having not aged a day. But he still has a connection to the beast.\
+Updates: Last update in 2018
+
+[Venus Envy](http://www.venusenvycomic.com/)\
+A transgirl dealing with transgirl issues.\
+Formerly Trans Tier
+
+[Warrior-U](http://warrior-u.com)\
+Medieval shota acting camp. They tied up Finn and fucked his chest hole.\
+Formerly Waifu Tier, now completely defunct
+
+[Welcome to the Machine](http://themachinelives.com/comic/welcome-to-the-machine/)\
+Girl who is accused of mass murder is sent to a futuristic high security women only prison filled with lesbians.\
+Formerly Lesbian Tier, ended with no conclusion
+
+[**White Hall**](http://whitetail.smackjeeves.com/comics/2121090/page-1/)\
+Teenage boy that has deer features starts seeing a boy on his school's swim team.\
+Defunct. Formerly Other Comics Tier, website died
+
+### Not Quite Shit But We're Getting There Tier
+
+[Element of Surprise](http://www.misterkitty.org/comics/element/elementintro.html)\
+"I stopped reading the second time one of the characters started literally arguing with his dick." - Anon.\
+Updates: No regular update schedule
+
+[Menage a 3](http://www.ma3comic.com/)\
+A bunch of random people and their sex lives. Pretty much every character is bisexual.\
+Updates: The story is complete
+
+[Prince of Cats](http://princeofcatscomic.com/)\
+An extremely boring comic about a guy can talk to cats. He was apparently raped at some point as well.\
+Updates: The story is complete.
+
+### Shit Tier
+
+[Before Juliet](http://beforejuliet.smackjeeves.com/)\
+Adam is a highly awarded actor who started a new project 'Before Juliet' starring as Mercutio. There he meets Julien - aka Romeo - and they hit it off right away. However, Adam gets the feeling that Julien wants to be more than friends and now has to find a way how to deal with this new found information...\
+Updates: The Story is complete.
+
+[**Gaysome**](gaysomecomic.tumblr.com/)\
+"It's a gag a day but I'm not laughing." - Anon (It stopped updating.)
+Updates: hahahaahaha
+
+[**Kaito Shuno**](http://seafoamdiary.com/)\
+The man, the myth, the legend. Manga-ish comic with incredibly awful writing. The writer has most likely never actually met a gay person. I wouldn't be surprised if she never met any people in the first place.\
+Updates: Saturday.\
+
+[Loki](http://loki.smackjeeves.com/)\
+A hired thug and a federal marshal in a world that has modern tech, but for some reason is still the old West.\
+Updates: The story is complete
+
+[**Moon Over June**](https://www.moonoverjune.slipshine.net/)\
+If you like this you're past the point of no return.\
+Updates: Why do you even want to know?
+
+[Neon Glow](http://neonglow.smackjeeves.com/)\
+It's like pokemon with glowing cats and fujoshit humor.\
+Updates: Weekly
+
+[Under Satyr's Orders](https://tapas.io/series/Under-Satyrs-Orders)\
+An asexual falls in love with a sex addict.\
+Updates: Weekly
+
+[**Y-Force**](http://www.yforcecomic.com/)\
+Superhero team with gays.\
+Updates: Sundays
+
+[The Young Protectors](http://webcomics.yaoi911.com/archive/ete_title_page/)\
+A potato superhero and a supervillain get gay. Jump to present day, and Firecrotch is gay for Asian Blimp, but they've been fighting his devil dad for two fucking years.\
+Updates: Saturday, and usually on Wednesday as well if enough people donate to the writer.
+
+[<3 Art](http://www.mangamagazine.net/manga-and-comics/3-Art./detail-page/3927?lang=en)\
+Another comic from the creator of Kaito Shuno. It's about an artist in France and a guy said artist thinks is a girl.\
+Updates: Sunday, but you have to make an account to read beyond chapter 2, so fuck that.
+
+### What The Fuck Is This? Tier
+
+[A Broken Winter](http://www.abrokenwinter.com/graphic.html)\
+Babby's first holocaust in comic form.\
+Updates: No regular update schedule.
+
+[Courage](http://courage.smackjeeves.com/comics/)\
+Courage the Cowardly Dog reimagined as a boy's love comic. Seriously.\
+Updates: Why does this even exist?
+
+[Kahbookoodoh](http://kahbookoodoh.tumblr.com/)\
+I don't know what this fucking comic is about, and I don't care.\
+Updates: Nope
+
+[Pika-seme-chu](http://pikasemechu.smackjeeves.com/comics/165598/cover/)\
+Pokemon reimagined as a boys love comic. Why do people make these things?\
+Updates: When you have a stiff drink nearby.
+
+[**Purpurea Noxa**](https://tapas.io/series/Purpurea-Noxa/info)\
+Gay vampires with ridiculous amounts of fucking.\
+Updates: No regular schedule
+
+[**Worlds Apart**](http://worldsapartcomic.smackjeeves.com/)\
+Terrible human beings being unlikeable. Also, drug users and supernatural powers, or something?\
+Updates: Perpetual hiatus
