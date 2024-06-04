@@ -7,15 +7,15 @@ Those lists used to be hosted on [Pastebin](https://pastebin.com/), then [CryptP
 
 ## How to contribute
 
-### If you can't use Git
+### If you can't use [Git](https://git-scm.com/book/en/v2)
 
-You can get access to an **online editor** by asking in the thread to be added as a collaborator to this repository or as a member to the organization that owns it. A GitHub organization is a group of GitHub accounts and our organization is called [Webcomics General](https://github.com/webcomics-general).
+You can edit the files with GitHub's [online editor](https://docs.github.com/en/repositories/working-with-files/managing-files/editing-files) by asking in the thread to be added as a collaborator of this repository or to become a member of the organization that owns it. A GitHub organization is a group of GitHub accounts and our organization is called [Webcomics General](https://github.com/webcomics-general).
 
 You will need to let us know your **GitHub username** to be invited, so we recommend **using an account that does not expose your actual identity**.
 
-Note that you will have to provide GitHub an email address in order to open an account with them. Check in your GitHub settings that GitHub keeps your email address **private**. You may also have to configure a [two-factor authentication method](https://docs.github.com/en/authentication/securing-your-account-with-two-factor-authentication-2fa/about-two-factor-authentication), I'm not sure.
+Note that you have to provide GitHub an email address in order to open an account with them. Set your email address as **private** in your account's settings. You may also have to configure a [two-factor authentication method](https://docs.github.com/en/authentication/securing-your-account-with-two-factor-authentication-2fa/about-two-factor-authentication), I'm not sure.
 
-### If you know your way around Git
+### If you know your way around [Git](https://git-scm.com/book/en/v2)
 
 Please fork this repository and open a pull request with your changes. Alternatively, ask in the thread for write access to the repository or membership in the organization, and you will be able to push to this repository directly.
 
