@@ -1,24 +1,8 @@
-## Info
-
-This is /wcg/'s next-gen pastebin, smut edition.
-
-It can be anonymously edited by anyone. The [Cryptpad instance](https://cryptpad.fr/) where it is stored is hosted by [XWiki SAS](https://xwiki.com/en/company/who-we-are/), the employee-owned company behind [Cryptpad](https://github.com/xwiki-labs/cryptpad). There are many other, community-maintained Cryptpad instances we can choose from if this one proves unsuitable for any reason in the future.
-
-The pad belongs to a user named *wcg* whose password is *h3wjWgakwxHs3HZ*. No personal data is necessary to open an account. No account is necessary to edit the document.
-
-Sharing links: [editable](https://cryptpad.fr/code/#/2/code/edit/StsXhwzarK-GGDG3P2GvlP6a/), [read-only Markdown source](https://cryptpad.fr/code/#/2/code/view/iiU2+aw-U3ZC2OX+PyCBUckUdxO+qw4thCGv2t5G5ro/), [read-only HTML result](https://cryptpad.fr/code/#/2/code/view/iiU2+aw-U3ZC2OX+PyCBUckUdxO+qw4thCGv2t5G5ro/present/). The links contain the secret key to decrypt and encrypt the pad.
-
-Markdown syntax:
-
-* [Cheat sheet](https://commonmark.org/help/) and [guide](https://guides.github.com/features/mastering-markdown/).
-* Hyperlinks: `[link text](http://...)`.
-* Line break in paragraph: add `\` or two blank spaces at the end of the line.
+## Skip to the good bit
 
 Official /wcg/ Y Gallery account:\
 Username: legbutt\
 Password: legbuttlewd
-
-## Skip to the good bit
 
 [Avialae](http://avialae.smackjeeves.com/)\
 Chapter 2 Page 52-57\

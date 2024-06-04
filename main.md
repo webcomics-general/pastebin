@@ -1,19 +1,3 @@
-## Info
-
-This is /wcg/'s next-gen pastebin.
-
-It can be anonymously edited by anyone. The [Cryptpad instance](https://cryptpad.fr/) where it is stored is hosted by [XWiki SAS](https://xwiki.com/en/company/who-we-are/), the employee-owned company behind [Cryptpad](https://github.com/xwiki-labs/cryptpad). There are many other, community-maintained Cryptpad instances we can choose from if this one proves unsuitable for any reason in the future.
-
-The pad belongs to a user named *wcg* whose password is *h3wjWgakwxHs3HZ*. No personal data is necessary to open an account. No account is necessary to edit the document.
-
-Sharing links: [editable](https://cryptpad.fr/code/#/2/code/edit/u9WMp8xnWArb0-xZ7ljJAjaa/), [read-only Markdown source](https://cryptpad.fr/code/#/2/code/view/Mr+SCan-wtlJ2lJGQ4iKAXerD5iSgI3MseRF0hUoR24/), [read-only HTML result](https://cryptpad.fr/code/#/2/code/view/Mr+SCan-wtlJ2lJGQ4iKAXerD5iSgI3MseRF0hUoR24/present/). The links contain the secret key to decrypt and encrypt the pad.
-
-Markdown syntax:
-
-* [Cheat sheet](https://commonmark.org/help/) and [guide](https://guides.github.com/features/mastering-markdown/).
-* Hyperlinks: `[link text](http://...)`.
-* Line break in paragraph: add `\` or two blank spaces at the end of the line.
-
 ## The webcomics
 
 Comics in **bold** are NSFW.
