@@ -42,7 +42,7 @@ Updates: The story is complete
 Abel Boddy follows the everyday adventures of a hedonistic guardian angel (Abel) and his perpetually frustrated ward (Howard).\
 Updates: On a hiatus since 2020.
 
-[**Adagio**](http://adagiocomic.com/)\
+[**Adagio**]([http://adagiocomic.com/page-001/)\
 Fan and rockstar get stuck in a hotel room together.\
 Updates: Tuesdays
 
@@ -70,11 +70,11 @@ Updates: The story is complete.
 I never asked for this scary handjob.\
 Updates: The story is complete.
 
-[**Avialae**](http://avialaecomic.com/)\
+[**Avialae**](https://yaoi.biz/avialae/chapter-1/page-0)\
 A qt pierced freckled outspoken gay guy in a rural conservative town who suddenly begins sprouting wings Haibane Renmei style. Plus, wingjobs and tumblr sexualities.\
 Updates: The story is complete
 
-[Backdoor](https://tapas.io/series/Backdoor)\
+[Backdoor](https://tapas.io/series/Backdoor) [Archive.org](https://archive.org/details/smackjeeves-160751/160751/comic/covers/chapter_01.jpg)\
 Sam is a young man dreaming about being a great journalist, and travelling through the world. Instead he works in a fast food, and struggles to pay his rent every month. Life goes on but Sam starts to see very strange things around him\
 Updates: On an indefinite hiatus as of April 2021
 
@@ -98,19 +98,19 @@ Updates: Monday, Wednesday, Friday
 Plot is basically Java Bonds + shounen quirks\
 Updates: Thursdays
 
-[Blackwater](http://blackwatercomic.tumblr.com/)\
+[Blackwater](https://blackwatercomic.tumblr.com/post/164839894063/prologue-page-1-jeannettes-twitter-tumblr)\
 Unlikely friends and supernatural adventures.\
 Updates: Fridays
 
-[Bonding Tides](http://bondingtides.smackjeeves.com/)\
+[Bonding Tides](http://bondingtides.smackjeeves.com/) [Tapas](https://tapas.io/series/Bonding-Tides/info)\
 The Little Mermaid, but gay. And there are randomly a lot of topless old women, so beware of tits.\
 Updates: Weekly
 
-[**Boned**](http://bonedcomic.com)\
+[**Boned**](http://bonedcomic.com)[Archive](https://boned.alicefox.com/comic/001/)
 A comedy about four gay guys and a parrot surviving NYC on Halloween weekend.\
 Updates: The story is complete.
 
-[Boneheaded](http://boneheadedcomic.tumblr.com/)\
+[Boneheaded](https://boneheadedcomic.tumblr.com/post/94802434088/first-page-archive-store)\
 Gay skull-headed guy tries to date some local superheroes and villains\
 Updates: The story is complete
 
@@ -122,7 +122,7 @@ Updates: Thrice a week.
 Every mage has a page- tucked away in the sewing rooms of the monastery - as the anchoring shield of every mage. And Embry has Kuo. But keeping the relationship without complications is impossible.\
 Updates: Three times a week
 
-[Boyfriends](https://tapas.io/series/Boyfriends)\
+[Boyfriends](https://www.webtoons.com/en/slice-of-life/boyfriends/list?title_no=2616)\
 About a goth, a prep, a nerd, and a jock. "Just a comic about boys being in love." May or may not end with a foursome.\
 Updates: No regular update schedule
 
@@ -134,7 +134,7 @@ Updates: Rarely
 High school kids somehow find time in between getting irrationally angry and beating each other up to romance. Probably won't end well.\
 Updates: Mondays
 
-[**Bruises**](http://stupidboys.smackjeeves.com/chapters/35231/chapter-1-drunk/)\
+[**Bruises**](http://stupidboys.smackjeeves.com/chapters/35231/chapter-1-drunk/) (Cannot find current link)\
 Skinny white (Mexican?) boy meets hockey player, they kick ass together and smash. Is it a love story? Who knows.\
 Updates: On hiatus
 
@@ -146,7 +146,8 @@ Updates: Wednesdays
 Werewolf sophomore meets broish surfer senior. Friendship ensues.\
 Updates: The story is complete
 
-[**Captured**](http://captured.smackjeeves.com)\
+[**Captured**](http://captured.smackjeeves.com) [Archive.org](https://archive.org/details/smackjeeves-135452)\
+
 Closeted soccer player begins relationship with photographer but can't get over his closetedness. Another gay couple getting broken up by college. Bullying and gay bashing but the adults don't give a fuck. For some reason the characters share the names of band members from One Direction.\
 Updates: No regular update schedule.
 
@@ -154,13 +155,13 @@ Updates: No regular update schedule.
 Mershota goldfish x sharkboy\
 Updates: Weekly
 
-[Casual Hex](https://www.casualhexcomic.com)\
+[Casual Hex](https://www.casualhexcomic.com) [Tapas](https://tapas.io/series/CasualHex/info/)\
 Twink hunter of paranormal s saved from being eaten by a ghost by a gay hunk exorcist. But in the darkness an evil lurks wanting to possess twink's body.\
 Updates: Every two weeks
 
 [Clockmaster](https://www.the-clockmaster.com/index)\
 Two siblings find a strange guy, unconscious, with an unusual clock installed on his forehead. Little do they know, that's far from the weirdest thing about the petty criminal they just took in.\
-Updates: Thursdays
+Updates: Thursdays (Does not appear to have been updated since 2020
 
 [Come Hell or High Water](https://www.chohwcomic.com)\
 Prince Gladimir was never meant to fall for a Pirate. Swearing off love for duty, the threat of war soon propels him back into the Captain's world of high seas and high stakes. Torn between his love for country and a completely ungovernable man, their relationship could be the very thing to save the kingdom of Yvoire - or destroy it.\
@@ -180,7 +181,7 @@ Updates: No regular schedule.
 
 [Crash n' Burn](https://tapas.io/series/Crash-n-Burn)\
 Kyle and Tyler have a passionate hatred for one another. Their first encounter ends in a fist fight, their second one, in bed.\
-Updates: Twice weekly
+Updates: Completed!
 
 **Crushed** [Archive on the author's GDrive (English/German)](https://drive.google.com/drive/folders/1N9nm7O-2XFXTv_gOO_KvfnzjP64OUVsl?usp=sharing)\
 Carter "Crush" Howe is a gay guy and hockey star player at an all-boy's boarding school in Canada who begins to rethink his promiscuous lifestyle after he starts cheating on his long-time boyfriend.\
@@ -190,7 +191,7 @@ Crush3d!! [Tapas](https://tapas.io/series/CRUSH3D), [Webtoon](https://www.webtoo
 The sanitized, full-color reboot of Crushed. No longer a depressing, and at times darkly-accurate, porn comics with a plot featuring damaged teenagers. More emphasis on hockey hijinks and on the supporting cast.\
 Updates: Mondays
 
-[Cuanta Vida](http://tf2.skyscrapersoup.com/2008/10/12/1-the-first-page/)\
+[Cuanta Vida](http://tf2.skyscrapersoup.com/2008/10/12/1-the-first-page/) [Author's Link](https://www.kytri.net/comics/)\
 TF2 fancomic, coming out of the closet, love and war.\
 Updates: The story is complete.
 
@@ -202,7 +203,7 @@ Updates: No regular schedule.
 Hanse, a floor manager, is going through an existential crisis until Karl, the new intern, shows up and makes thing around the office more exciting. Basically Office AU: the Comic.\
 Updates: Weekly.
 
-[**Devoto**](http://devoto.smackjeeves.com/)\
+[**Devoto**](http://devoto.smackjeeves.com/) [Archive.org](https://archive.org/details/smackjeeves-114862)\
 A fallen angel works as a muse.\
 Updates: No regular update schedule. Things get posted whenever the writer gets around to it.
 
@@ -214,7 +215,7 @@ Updates: Every two days
 Gag a day. And now, it isn't funny.\
 Updates: Daily
 
-[Dragon Husbands](http://dragonhusbands.com/)\
+[Dragon Husbands](https://dragonhusbands.thecomicseries.com/)\
 Fairy tale creatures and gays.\
 Updates: The story is complete
 
@@ -230,7 +231,7 @@ Updates: Allegedly on Wednesdays.
 Dark skinned twink gets hunted down.\
 Updates: Mondays, Wednesdays and Fridays
 
-[**The Elduin and Donestan Chronicles**](http://trickster-book.com/lostinthesnow/archive/act1eng/1.html)\
+[**The Elduin and Donestan Chronicles**](http://trickster-book.com/lostinthesnow/archive/act1eng/1.html) [Alt](https://flowfo.me/artwork/Velvet_Toucher/Elduin-And-Donestan-Chronicles)\
 A noble and a lumberjack looking guy are stuck in a cabin, so they fuck.\
 Updates: No regular schedule.
 
@@ -254,11 +255,11 @@ Updates: Wednesdays
 Middle school kids get themselves into trouble in their small Swedish town, while visiting alien hunters investigate a local alien infestation. Told entirely in animated GIF format.\
 Updates: On hiatus
 
-[**Ethemeral**](http://ephemeralcomic.com/)\
+[**Ethemeral**](http://ephemeralcomic.com/) [Tapas](https://tapas.io/series/EPHEMERAL/info)\
 The story of people genetically engineered to be prostitutes in order to immunize soldiers fighting monsters.\
-Updates: Sunday
+Updates: Sundays, appears abondoned
 
-[Everyone Hates Debate Club](http://everyone-hates-debate-club.smackjeeves.com/)\
+[Everyone Hates Debate Club](http://everyone-hates-debate-club.smackjeeves.com/) [Archive.org](https://archive.org/details/smackjeeves-145059)\
 Swimmer highschool fag crushes over his qt blonde best friend; given the banner says "BL" they're probably gonna fug\
 Updates: No regular update schedule
 
