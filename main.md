@@ -4,7 +4,8 @@ Comics in **bold** are NSFW.
 
 Official /wcg/ Tapas account:\
 Username: generalwebcomic@mailinator.com\
-Password: Adrian
+Password: Adrian\
+Any Archive.org links are best accessed by downloading the originals under 'Download Options,' then extracting and opening the 'index.html' file in the comic's folder. Alternatively, you can open it page-by-page once extracted. 
 
 ### Waifu Tier
 
