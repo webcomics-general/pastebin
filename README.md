@@ -15,7 +15,7 @@ You can edit the pastebins in your browser with GitHub's [online editor](https:/
 
 2. Leave your (fake-name) **GitHub username** in the thread and ask to be added as a collaborator of this repository (direct write access) or to become a member of the organization that owns it (indirect write access). A GitHub organization is a group of GitHub accounts and our organization is called [Webcomics General](https://github.com/webcomics-general). If you're not sure, please ask to join the organization, so that you can maybe become an admin for it later if you desire.
 
-3. You will receive an email invite from GitHub, accept it to get write access. When logged into GitHub, click on the file you want to edit in this repository, then on the pencil icon in the left-right corner to edit it.
+3. You will receive an email invite from GitHub, accept it to get write access. When logged into GitHub, click on the file you want to edit in this repository, then on the pencil icon in the upper-right corner to edit it. To save your edits, click the green button that says "Commit changes".
 
 ### If you know your way around [Git](https://git-scm.com/book/en/v2)
 
