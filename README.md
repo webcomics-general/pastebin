@@ -9,15 +9,17 @@ Those lists used to be hosted on [Pastebin](https://pastebin.com/), then [CryptP
 
 ### If you can't use [Git](https://git-scm.com/book/en/v2)
 
-You can edit the files with GitHub's [online editor](https://docs.github.com/en/repositories/working-with-files/managing-files/editing-files) by asking in the thread to be added as a collaborator of this repository or to become a member of the organization that owns it. A GitHub organization is a group of GitHub accounts and our organization is called [Webcomics General](https://github.com/webcomics-general).
+You can edit the pastebins in your browser with GitHub's [online editor](https://docs.github.com/en/repositories/working-with-files/managing-files/editing-files). Here is how to get write access anonymously:
 
-You will need to let us know your **GitHub username** to be invited, so we recommend **using an account that does not expose your actual identity**.
+1. Open a GitHub account using a fake name, that is to say **choose a username that does not expose your actual identity**. Set your email address as **private** in your account's settings, so that it is not used to sign your edits. You may also have to configure a [two-factor authentication method](https://docs.github.com/en/authentication/securing-your-account-with-two-factor-authentication-2fa/about-two-factor-authentication), I'm not sure.
 
-Note that you have to provide GitHub an email address in order to open an account with them. Set your email address as **private** in your account's settings. You may also have to configure a [two-factor authentication method](https://docs.github.com/en/authentication/securing-your-account-with-two-factor-authentication-2fa/about-two-factor-authentication), I'm not sure.
+2. Leave your (fake-name) **GitHub username** in the thread and ask to be added as a collaborator of this repository (direct write access) or to become a member of the organization that owns it (indirect write access). A GitHub organization is a group of GitHub accounts and our organization is called [Webcomics General](https://github.com/webcomics-general). If you're not sure, please ask to join the organization, so that you can maybe become an admin for it later if you desire.
+
+3. You will receive an email invite from GitHub, accept it to get write access. When logged into GitHub, click on the file you want to edit in this repository, then on the pencil icon in the left-right corner to edit it.
 
 ### If you know your way around [Git](https://git-scm.com/book/en/v2)
 
-Please fork this repository and open a pull request with your changes. Alternatively, ask in the thread for write access to the repository or membership in the organization, and you will be able to push to this repository directly.
+Please fork this repository and open a pull request with your changes. Alternatively, ask in the thread for write access to the repository or membership in the organization that owns it, and you will be able to push to this repository directly.
 
 Beware not to expose your actual identity in your commits (`user.name`, `user.email`).
 
