@@ -45,7 +45,7 @@ Updates: The story is complete
 Abel Boddy follows the everyday adventures of a hedonistic guardian angel (Abel) and his perpetually frustrated ward (Howard).\
 Updates: On a hiatus since 2020.
 
-[**Adagio**]([http://adagiocomic.com/page-001/)\
+[**Adagio**](http://adagiocomic.com/page-001/)\
 Fan and rockstar get stuck in a hotel room together.\
 Updates: Tuesdays
 
