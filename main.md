@@ -78,9 +78,9 @@ A qt pierced freckled outspoken gay guy in a rural conservative town who suddenl
 Updates: The story is complete
 
 [Backdoor](https://tapas.io/series/Backdoor)\
-[Archive.org](https://archive.org/details/smackjeeves-160751/160751/comic/covers/chapter_01.jpg)\
 Sam is a young man dreaming about being a great journalist, and travelling through the world. Instead he works in a fast food, and struggles to pay his rent every month. Life goes on but Sam starts to see very strange things around him\
-Updates: On an indefinite hiatus as of April 2021
+Updates: On an indefinite hiatus as of April 2021\
+Alt Links:[Archive.org](https://archive.org/details/smackjeeves-160751/160751/comic/covers/chapter_01.jpg)\
 
 [**Banquet**](https://www.banquetcomic.com)\
 A baby falls to hell and gets adopted by king demon bear and his twunk bodyguard/lover. Author seems keen on fanservice, but nothing hardcore yet.\
@@ -107,13 +107,14 @@ Unlikely friends and supernatural adventures.\
 Updates: Fridays
 
 [Bonding Tides](http://bondingtides.smackjeeves.com/)\
-[Tapas](https://tapas.io/series/Bonding-Tides/info)\
 The Little Mermaid, but gay. And there are randomly a lot of topless old women, so beware of tits.\
-Updates: Weekly
+Updates: Weekly\
+Alt Link: [Tapas](https://tapas.io/series/Bonding-Tides/info)
 
-[**Boned**](http://bonedcomic.com)[Archive](https://boned.alicefox.com/comic/001/)
+[**Boned**](http://bonedcomic.com)
 A comedy about four gay guys and a parrot surviving NYC on Halloween weekend.\
-Updates: The story is complete.
+Updates: The story is complete.\
+Alt Link:[Archive](https://boned.alicefox.com/comic/001/)
 
 [Boneheaded](https://boneheadedcomic.tumblr.com/post/94802434088/first-page-archive-store)\
 Gay skull-headed guy tries to date some local superheroes and villains\
@@ -151,18 +152,19 @@ Updates: Wednesdays
 Werewolf sophomore meets broish surfer senior. Friendship ensues.\
 Updates: The story is complete
 
-[**Captured**](http://captured.smackjeeves.com) [Archive.org](https://archive.org/details/smackjeeves-135452)\
-
+[**Captured**](http://captured.smackjeeves.com)\
 Closeted soccer player begins relationship with photographer but can't get over his closetedness. Another gay couple getting broken up by college. Bullying and gay bashing but the adults don't give a fuck. For some reason the characters share the names of band members from One Direction.\
-Updates: No regular update schedule.
+Updates: No regular update schedule.\
+Alt Links:[Archive.org](https://archive.org/details/smackjeeves-135452)
 
 [Castle Swimmer](https://www.webtoons.com/en/fantasy/castle-swimmer/list?title_no=1499)\
 Mershota goldfish x sharkboy\
 Updates: Weekly
 
-[Casual Hex](https://www.casualhexcomic.com) [Tapas](https://tapas.io/series/CasualHex/info/)\
+[Casual Hex](https://www.casualhexcomic.com)\
 Twink hunter of paranormal s saved from being eaten by a ghost by a gay hunk exorcist. But in the darkness an evil lurks wanting to possess twink's body.\
-Updates: Every two weeks
+Updates: Every two weeks\
+Alt Links:[Tapas](https://tapas.io/series/CasualHex/info/)
 
 [Clockmaster](https://www.the-clockmaster.com/index)\
 Two siblings find a strange guy, unconscious, with an unusual clock installed on his forehead. Little do they know, that's far from the weirdest thing about the petty criminal they just took in.\
@@ -192,9 +194,10 @@ Updates: Completed!
 Carter "Crush" Howe is a gay guy and hockey star player at an all-boy's boarding school in Canada who begins to rethink his promiscuous lifestyle after he starts cheating on his long-time boyfriend.\
 Updates: The story has been rebooted, and so has the archive file.
 
-Crush3d!! [Tapas](https://tapas.io/series/CRUSH3D), [Webtoon](https://www.webtoons.com/en/challenge/crush3d/list?title_no=82094)\
+Crush3d!! [Tapas](https://tapas.io/series/CRUSH3D)\
 The sanitized, full-color reboot of Crushed. No longer a depressing, and at times darkly-accurate, porn comics with a plot featuring damaged teenagers. More emphasis on hockey hijinks and on the supporting cast.\
-Updates: Mondays
+Updates: Mondays\
+Alt Links:[Webtoon](https://www.webtoons.com/en/challenge/crush3d/list?title_no=82094)
 
 [Cuanta Vida](http://tf2.skyscrapersoup.com/2008/10/12/1-the-first-page/) [Author's Link](https://www.kytri.net/comics/)\
 TF2 fancomic, coming out of the closet, love and war.\
@@ -208,10 +211,10 @@ Updates: No regular schedule.
 Hanse, a floor manager, is going through an existential crisis until Karl, the new intern, shows up and makes thing around the office more exciting. Basically Office AU: the Comic.\
 Updates: Weekly.
 
-[**Devoto**](http://devoto.smackjeeves.com/) \
-[Archive.org](https://archive.org/details/smackjeeves-114862)\
+[**Devoto**](http://devoto.smackjeeves.com/)\
 A fallen angel works as a muse.\
-Updates: No regular update schedule. Things get posted whenever the writer gets around to it.
+Updates: No regular update schedule. Things get posted whenever the writer gets around to it.\
+Alt Links:[Archive.org](https://archive.org/details/smackjeeves-114862)
 
 [Disaster Debut](https://tapas.io/series/Disaster-Debut)\
 After 3 months Aaron and Nemo decide to finally take the final step in their relationship. But due to an unnecessary and very stupid misunderstanding the whole sex-thing gets a little bit more awkward than it already was.\
@@ -237,9 +240,10 @@ Updates: Allegedly on Wednesdays.
 Dark skinned twink gets hunted down.\
 Updates: Mondays, Wednesdays and Fridays
 
-[**The Elduin and Donestan Chronicles**](http://trickster-book.com/lostinthesnow/archive/act1eng/1.html) [Alt](https://flowfo.me/artwork/Velvet_Toucher/Elduin-And-Donestan-Chronicles)\
+[**The Elduin and Donestan Chronicles**](http://trickster-book.com/lostinthesnow/archive/act1eng/1.html)\
 A noble and a lumberjack looking guy are stuck in a cabin, so they fuck.\
-Updates: No regular schedule.
+Updates: No regular schedule.\
+Alt Links:[FloFo](https://flowfo.me/artwork/Velvet_Toucher/Elduin-And-Donestan-Chronicles)
 
 [**End of Main**](https://tapas.io/series/The-End-of-Main)\
 Illiterate junkie prostitute meets a priest in a bus, plus badly drawn sex.\
@@ -261,13 +265,15 @@ Updates: Wednesdays
 Middle school kids get themselves into trouble in their small Swedish town, while visiting alien hunters investigate a local alien infestation. Told entirely in animated GIF format.\
 Updates: On hiatus
 
-[**Ethemeral**](http://ephemeralcomic.com/) [Tapas](https://tapas.io/series/EPHEMERAL/info)\
+[**Ethemeral**](http://ephemeralcomic.com/)\
 The story of people genetically engineered to be prostitutes in order to immunize soldiers fighting monsters.\
-Updates: Sundays, appears abondoned
+Updates: Sundays, appears abondoned\
+Alt Links:[Tapas](https://tapas.io/series/EPHEMERAL/info)
 
-[Everyone Hates Debate Club](http://everyone-hates-debate-club.smackjeeves.com/) [Archive.org](https://archive.org/details/smackjeeves-145059)\
+[Everyone Hates Debate Club](http://everyone-hates-debate-club.smackjeeves.com/)\
 Swimmer highschool fag crushes over his qt blonde best friend; given the banner says "BL" they're probably gonna fug\
-Updates: No regular update schedule
+Updates: No regular update schedule\
+Alt Links:[Archive.org](https://archive.org/details/smackjeeves-145059)
 
 [**Exorcism Academy**](http://ea.asmodrawscomics.com)\
 Like a bara version of Starfighter, but less rapey\
@@ -289,19 +295,19 @@ Updates: No regular update schedule
 It's about a guy who one day happens to come across a flower shop with his sister and gets a bouquet from the guy who works there and they grow close\
 Updates: No regular update schedule
 
-[Flowerpot](http://flowerpot.smackjeeves.com/) \ 
-[Archive.org](https://archive.org/details/smackjeeves-157021) [Webtoons](https://www.webtoons.com/en/canvas/flowerpot/list?title_no=51856) [Tapas](https://tapas.io/series/Flowerpot/info) [Tumblr](https://flowerpot-comic.tumblr.com/post/136451132675/flowerpot-title-page-read-flowerpot-on-tapastic)\
+[Flowerpot](http://flowerpot.smackjeeves.com/)\ 
 Guy who grows flowers out of his head is courted by guy who used to have one growing out of his ear\
-Updates: Indefinite hiatus, but not abandoned.
+Updates: Indefinite hiatus, but not abandoned.\
+Alt Links:[Archive.org](https://archive.org/details/smackjeeves-157021) [Webtoons](https://www.webtoons.com/en/canvas/flowerpot/list?title_no=51856) [Tapas](https://tapas.io/series/Flowerpot/info) [Tumblr](https://flowerpot-comic.tumblr.com/post/136451132675/flowerpot-title-page-read-flowerpot-on-tapastic)\
 
 [Fluxa](https://tapastic.com/series/FLUXA) (Defunct link, could not replace)\
 Callipus is being chased by the police after hacking into one of the largest existing corporations. During his escape, he meets a mysterious boy who seems somewhat suspicious. After being saved by him, the two start working together.\
 Updates: Abandoned
 
-[Friends Til Death](http://www.friendstilldeath.com/comics/) \ 
-[Webtoons](https://www.webtoons.com/en/canvas/friends-till-death/list?title_no=631058) [Tapas](https://tapas.io/series/Friends-till-Death/info) [Tumblr](https://friendstildeathcomic.tumblr.com/tagged/FTD/chrono)\
+[Friends Til Death](http://www.friendstilldeath.com/comics/)\ 
 They're friends, until they die.\
-Updates: Whenever.
+Updates: Whenever.\
+Alt Links:[Webtoons](https://www.webtoons.com/en/canvas/friends-till-death/list?title_no=631058) [Tapas](https://tapas.io/series/Friends-till-Death/info) [Tumblr](https://friendstildeathcomic.tumblr.com/tagged/FTD/chrono)
 
 [From Friendship comes Love](https://tapas.io/series/From-friendship-comes-love)\
 Alex returns home after six years away.\
