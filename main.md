@@ -77,7 +77,8 @@ Updates: The story is complete.
 A qt pierced freckled outspoken gay guy in a rural conservative town who suddenly begins sprouting wings Haibane Renmei style. Plus, wingjobs and tumblr sexualities.\
 Updates: The story is complete
 
-[Backdoor](https://tapas.io/series/Backdoor) [Archive.org](https://archive.org/details/smackjeeves-160751/160751/comic/covers/chapter_01.jpg)\
+[Backdoor](https://tapas.io/series/Backdoor)\
+[Archive.org](https://archive.org/details/smackjeeves-160751/160751/comic/covers/chapter_01.jpg)\
 Sam is a young man dreaming about being a great journalist, and travelling through the world. Instead he works in a fast food, and struggles to pay his rent every month. Life goes on but Sam starts to see very strange things around him\
 Updates: On an indefinite hiatus as of April 2021
 
@@ -105,7 +106,8 @@ Updates: Thursdays
 Unlikely friends and supernatural adventures.\
 Updates: Fridays
 
-[Bonding Tides](http://bondingtides.smackjeeves.com/) [Tapas](https://tapas.io/series/Bonding-Tides/info)\
+[Bonding Tides](http://bondingtides.smackjeeves.com/)\
+[Tapas](https://tapas.io/series/Bonding-Tides/info)\
 The Little Mermaid, but gay. And there are randomly a lot of topless old women, so beware of tits.\
 Updates: Weekly
 
