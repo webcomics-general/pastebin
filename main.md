@@ -282,7 +282,8 @@ Updates: No regular update schedule
 It's about a guy who one day happens to come across a flower shop with his sister and gets a bouquet from the guy who works there and they grow close\
 Updates: No regular update schedule
 
-[Flowerpot](http://flowerpot.smackjeeves.com/) [Archive.org](https://archive.org/details/smackjeeves-157021) [Webtoons](https://www.webtoons.com/en/canvas/flowerpot/list?title_no=51856) [Tapas](https://tapas.io/series/Flowerpot/info) [Tumblr](https://flowerpot-comic.tumblr.com/post/136451132675/flowerpot-title-page-read-flowerpot-on-tapastic)\
+[Flowerpot](http://flowerpot.smackjeeves.com/)\ 
+[Archive.org](https://archive.org/details/smackjeeves-157021) [Webtoons](https://www.webtoons.com/en/canvas/flowerpot/list?title_no=51856) [Tapas](https://tapas.io/series/Flowerpot/info) [Tumblr](https://flowerpot-comic.tumblr.com/post/136451132675/flowerpot-title-page-read-flowerpot-on-tapastic)\
 Guy who grows flowers out of his head is courted by guy who used to have one growing out of his ear\
 Updates: Indefinite hiatus, but not abandoned.
 
@@ -290,7 +291,8 @@ Updates: Indefinite hiatus, but not abandoned.
 Callipus is being chased by the police after hacking into one of the largest existing corporations. During his escape, he meets a mysterious boy who seems somewhat suspicious. After being saved by him, the two start working together.\
 Updates: Abandoned
 
-[Friends Til Death](http://www.friendstilldeath.com/comics/) [Webtoons](https://www.webtoons.com/en/canvas/friends-till-death/list?title_no=631058) [Tapas](https://tapas.io/series/Friends-till-Death/info) [Tumblr](https://friendstildeathcomic.tumblr.com/tagged/FTD/chrono)\
+[Friends Til Death](http://www.friendstilldeath.com/comics/)\ 
+[Webtoons](https://www.webtoons.com/en/canvas/friends-till-death/list?title_no=631058) [Tapas](https://tapas.io/series/Friends-till-Death/info) [Tumblr](https://friendstildeathcomic.tumblr.com/tagged/FTD/chrono)\
 They're friends, until they die.\
 Updates: Whenever.
 
