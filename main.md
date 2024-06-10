@@ -313,10 +313,10 @@ Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/friends-till-death/list
 Alex returns home after six years away.\
 Updates: Once a week
 
-[Full Spectrum Therapy](http://fst.smackjeeves.com/)\
+[Full Spectrum Therapy](https://tapas.io/series/fst/info)\
 A supernatural body-horror drama set in a city in the American west struggling to recuperate 30 years after an alien invasion.\
 Updates: The story is complete\
-Alt Links: [Tapas}(https://archive.org/details/smackjeeves-156285) [Archive.org](https://archive.org/details/smackjeeves-156285) 
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-156285) 
 
 [The Gardener](http://thegardener-comic.com/archive/chapitre-1/)\
 A rich man falls in love with the manor's gardener.\
@@ -500,29 +500,32 @@ Updates: The story is complete
 Ryan is an amateur musician with a lot of friends and no future plans. He doesn't work, engage in long lasting relationships, or take anything seriously, What he does do, is fall in love with pretty much every guy he sets his eyes on - including the stranger he once banged in a motel and who he knows absolutely nothing about.\
 Updates: Every three weeks
 
-[Love at First Sight](http://www.smackjeeves.com/comicprofile.php?id=163543)\
+[~~Love at First Sight~~](http://www.smackjeeves.com/comicprofile.php?id=163543) (Does not appear to be available for free, other than Archive.org)\
 Sato is pretty simple guy that just doesn't think much before he speaks... One day he tells Kenichi he is "beautiful" without even realizing he is talking to another guy!! After that incident pair become friends... Or maybe more?\
-Updates: In large chunks, every so often.
+Updates: In large chunks, every so often.\
+Alt Links: [Archive.org (Sketches only)](https://archive.org/details/smackjeeves-163543) [Paid Link](https://www.indyplanet.com/love-at-first-sight)
 
-[Love Sick Diaries](https://thelovesickdiaries.tumblr.com/)\
+[Love Sick Diaries](https://tapas.io/series/the-love-sick-diaries/info)\
 Guilty pleasures, hidden romances, and sexual fantasies are the best things of high school; for Matt Bensen, however, it's torment. The reoccurring thought of happiness soars through his mind everyday. His main dilemma, wishing that his boyfriend, Dylan, can come out openly gay\
-Updates: Regularly
+Updates: The story is complete.\
+Alt Links: [Tumblr](https://thelovesickdiaries.tumblr.com/) [Sequel (Possibly abandonded?)](https://tapas.io/series/Pumpkin-Boy/info)
 
 [Lovestruck](https://www.webtoons.com/en/challenge/lovestruck/list?title_no=404284)\
 Typical fag drama in high school and whatever\
 Updates: Weekly
 
-[Mackie](https://tapas.io/series/Mackie/info)\
+[~~Mackie~~](https://tapas.io/series/Mackie/info) (Defunct, cannot find replacement link.)\
 Twink wants to kill his dad and runs to his morbid ex-boyfriend for help. Feelings may ensue? That or murder. Made by mackieanon, a brown twink who posts on /wcg/.\
 Updates: Several times a week.
 
-[Magical Boy Basil](http://magicalboybasil.com/chapter-1/)\
+[Magical Boy Basil](http://magicalboybasil.com/chapter-1-page-1)\
 15 year old Basil moved into a new, possibly haunted, house with his parents and brother. First night there he has a weird dream with a qt guy in it, who's literally called 'White Knight'. Weird shit starts happening and Basil totally wants to feel White Knights sword.\
 Updates: Fridays
 
-[Marine Boy](https://tapas.io/series/Marine-Boy)\
+[~~Marine Boy~~](https://tapas.io/series/Marine-Boy) (Defunct, could not find replacement link.)\
 Dude falls in love in a fugitive merman who escaped his tyrannical father to work as a human in an aquarium.\
-Updates: Weekly (But sometimes biweekly)
+Updates: Weekly (But sometimes biweekly)\
+Alt Links: [Archive.org (First chapter only)](https://web.archive.org/web/20211023170252/https://tapas.io/episode/1894231)
 
 [Matias and Anders](http://matianders.tumblr.com/)\
 Finnish uni student wants to get boned by his Scandinavian lit professor.\
