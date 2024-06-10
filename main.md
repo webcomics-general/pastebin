@@ -206,7 +206,8 @@ Updates: No regular schedule.
 Hanse, a floor manager, is going through an existential crisis until Karl, the new intern, shows up and makes thing around the office more exciting. Basically Office AU: the Comic.\
 Updates: Weekly.
 
-[**Devoto**](http://devoto.smackjeeves.com/) [Archive.org](https://archive.org/details/smackjeeves-114862)\
+[**Devoto**](http://devoto.smackjeeves.com/) \
+[Archive.org](https://archive.org/details/smackjeeves-114862)\
 A fallen angel works as a muse.\
 Updates: No regular update schedule. Things get posted whenever the writer gets around to it.
 
