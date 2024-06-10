@@ -300,7 +300,7 @@ Guy who grows flowers out of his head is courted by guy who used to have one gro
 Updates: Indefinite hiatus, but not abandoned.\
 Alt Links: [Archive.org](https://archive.org/details/smackjeeves-157021) [Webtoons](https://www.webtoons.com/en/canvas/flowerpot/list?title_no=51856) [Tapas](https://tapas.io/series/Flowerpot/info) [Tumblr](https://flowerpot-comic.tumblr.com/post/136451132675/flowerpot-title-page-read-flowerpot-on-tapastic)\
 
-[Fluxa](https://tapastic.com/series/FLUXA) (Defunct link, could not replace)\
+[~~Fluxa~~](https://tapastic.com/series/FLUXA) (Defunct link, could not replace)\
 Callipus is being chased by the police after hacking into one of the largest existing corporations. During his escape, he meets a mysterious boy who seems somewhat suspicious. After being saved by him, the two start working together.\
 Updates: Abandoned
 
@@ -334,7 +334,7 @@ Updates: No regular update schedule
 The story of Hades and Persephone, but shotacon.\
 Updates: No regular update schedule.
 
-[Go to Church](http://gotochurch.smackjeeves.com/) (Defunct, could not find replacement link.)\
+[~~Go to Church~~](http://gotochurch.smackjeeves.com/) (Defunct, could not find replacement link.)\
 Mason is in love with his mother's boyfriend. That motherfucker needs Jesus.\
 Updates: On hiatus
 
@@ -386,33 +386,32 @@ Updates: No regular update schedule
 Rich/noble bloke takes in a guy off the street to be his bodyguard because the guy fights like a beast.\
 Updates: Every Friday or Saturday
 
-[**Hell Eyes**](http://helleyes.smackjeeves.com/chapters/85021/volume-1/)\
+[**Hell Eyes**](https://tapas.io/series/HellEyes/info)\
 Post apocalyptic world with demons and angels\
-Updates: Twice a week
+Updates: The story is complete.
+Alt Links: [Blog Series](https://helleyes.thecomicseries.com/comics/1#content-start) [Extra bonus](https://tapas.io/series/HellEyes-Anniversary/info)
 
 [Hell Hounds](https://tapas.io/series/Hell-Hounds)\
 Hell Hounds is the story of Payne, Phury and Asoro. Hell hounds and an angel respectively, there should be little cross over between these creatures; but with Asoro on his own, the boys can't help but bring him home. While something more may blossom between the three men, Heaven and Hell can't possibly just let things be.\
 Updates: Wednesdays
 
-[Helpless Oneechan Next Door](https://tapas.io/series/helplessoneechan)\
-Typical yuri fluff, now in webcomic format: Ume is a dependable first-year who lives next door to an older recently graduated student, Saki, who can't seem to take care of herself at all.\
-Updates: No regular update schedule
-
-[**Hendrix and Julian**](http://hendrixandjulian.smackjeeves.com/comics/2165716/page-1/)\
+[**Hendrix and Julian**](https://tapas.io/series/Hendrix-and-Julian/info)\
 Guys with ridiculously big eyes and long eyelashes hate eachother but end up in locked in a storage closet and one of them ends up preforming fellatio?\
-Updates: Rarely
+Updates: Rarely\
+Alt Links: [Uncensored](https://flowfo.me/artwork/ElectronicTammy/Hendrix-and-Julian)
 
 [Heir's Game](https://www.webtoons.com/en/drama/heirs-game/list?title_no=1445)\
 When a new heir to the duchy of Belluna comes of age, there is held the Heir's Game: a brutal series of duels to determine the heir's bodyguard. When Theuden, the new heir, meets Isran, a quiet duelist with a mysterious past, their love will threaten to change everything.\
 Updates: Mondays
 
-[HEW](https://tapas.io/series/HEXwebcomic)\
+[HEX](https://tapas.io/series/HEXwebcomic)\
 A young tracker stumbles onto the trail of a dangerous species of animal that may be more than it seems. This leads him to cultivate a relationship with a gifted being called a Warmith who is the only one of his kind.\
-Updates: Every two weeks or so
+Updates: Every two weeks or so, likely abandoned.
 
-[Hey I'm Gay](https://tapastic.com/series/hey-im-gay)\
+[Hey I'm Gay](https://tapas.io/series/heyimgay/info)\
 Slice of life moments from a gay guy.\
-Updates: No regular update schedule
+Updates: No regular update schedule\
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/hey-im-gay/list?title_no=84435)
 
 [High Class Homos](https://www.webtoons.com/en/challenge/high-class-homos/list?title_no=335840)\
 Webtoon where a lesbian princess and a gay prince from two different kingdoms try to marry one another because they live in a society.\
@@ -422,29 +421,32 @@ Updates: No regular update schedule
 Supernatural (and gay) shenanigans happen in a town being overrun by skin stealing lizard people\
 Updates: Weekly
 
-[Hive Heart](https://m.tapas.io/series/hiveheart)\
+[Hive Heart](https://www.tapas.io/series/hiveheart)\
 Interspecies insect gays, with a bee and an ant in human form.\
 Updates: Monday, Wednesday, Friday
 
-[Hologram](http://hologram.smackjeeves.com/)\
+[~~Hologram~~](http://hologram.smackjeeves.com/) (Defunct, could not find replacement link.)\
 A hologram hires a prostitute, despite not having a physical body\
 Updates: The story is complete.
 
-[Hotblood](http://hotbloodcomic.com/)\
+[Hotblood](https://tapas.io/series/hotblood/info)\
 Horse fucking.\
-Updates: The story is complete
+Updates: The story is complete\
+Alt Links: [PDF Download](https://rot-iron.itch.io/hotblood)
 
-[Hotblood: Zarco](http://hotbloodzarco.com/)\
+[Hotblood: Zarco](https://tapas.io/series/zarco/info)\
 Horse Fucking II: The Fuckening.\
 Updates: Wednesday
+Alt Links: [Included in HotBlood PDF Download](https://rot-iron.itch.io/hotblood)
 
 [**The Hunt**](https://tapas.io/series/TheHunt)\
 From the creator of Bird Twinks, AKA Avilae, comes Gay Buzzfeed Unsolved\
 Updates: Fridays (When she gets to it)
 
-[Icarus](http://fifty-three.net/icarus/)\
+[~~Icarus~~](http://fifty-three.net/icarus/) (No free links available.)\ 
 Two dudes who have no idea what the hell they're doing. Kolya wants to fly, Ptichka wants to go home, and neither of those things seem likely to happen\
-Updates: The story is complete.
+Updates: The story is complete.\
+Alt Links: [Paid Link](https://mkharris.gumroad.com/l/icaruscomic?layout=profile)
 
 [Icebreaker](https://tapas.io/series/Icebreaker)\
 Quiet and hot brown-haired hockey player is helped out by outgoing and faggy blond-haired figure skater after a teammate hits him. Feelings may ensue. Possibly set in Minnesota.\
@@ -466,7 +468,7 @@ Up|dates: We|ekly
 Adorably awkward freshman kid meets cooler senior guy, spaghetti spilling ensues. Now new and improved (Meaning they got rid of everything good about it).\
 Updates: No specific update time
 
-[**Jason**](http://jasoncomic.smackjeeves.com/)\
+[~~**Jason**~~](http://jasoncomic.smackjeeves.com/)\
 Jason is in his first year of university and is torn between two guys, one from his past and the other from the present. All while recovering from stuff that happened in between them.\
 Updates: On hiatus
 
@@ -474,13 +476,9 @@ Updates: On hiatus
 Henry's life consists of self-chosen lonely cigarette or coffee breaks and friends he shouldn't fall for. Sadly not about computer programmers falling in love.\
 Updates: So rarely that it's basically in a perpetual hiatus.
 
-[Jeremiah](http://www.jeremiahcomic.com/)\
+[Jeremiah](https://www.cathygjohn.net/jeremiah)\
 I don't even...\
 Updates: The story is complete
-
-[Lake Penake](https://tapas.io/series/Lake-Penake/info)\
-Fawn moved to Lake Penake after an attempted murder left his body broken and his life in shambles. He awoke from the incident with the ability to see grotesque spirits. It's a gay Sixth Sense, with lots of gore.\
-Updates: Weekly
 
 [Land Underground](https://tapas.io/series/LaNd-Underground)\
 The story about the guy who said "I love you" at the subway station.\
@@ -1031,6 +1029,10 @@ Updates: Monday, Wednesday, and Friday
 A lesbian spy drama about fighting crime, doing the right thing for the wrong reasons, and getting revenge on your hot evil ex.\
 Updates: Weekly
 
+[Helpless Oneechan Next Door](https://tapas.io/series/helplessoneechan)\
+Typical yuri fluff, now in webcomic format: Ume is a dependable first-year who lives next door to an older recently graduated student, Saki, who can't seem to take care of herself at all.\
+Updates: No regular update schedule
+
 [**Idolon**](www.idoloncomic.com)\
 Cute innocent school girl gets corrupted by older criminal lesbians? Seems to me that's where it's going.\
 Updates: Monday and Thursdays
@@ -1465,6 +1467,11 @@ Defunct. Formerly Other Comics Tier, ended with no conclusion
 [Kyle & Atticus](http://kyleandatticus.tumblr.com/)\
 A genderqueer kid named Kyle and a robot named Atticus.
 Formerly Trans Tier, ended with no conclusion
+
+[Lake Penake](https://www.webtoons.com/en/canvas/lake-penake/list?title_no=394417) (Webtoons link is prologue only, Archive has through first chapter.)\
+Fawn moved to Lake Penake after an attempted murder left his body broken and his life in shambles. He awoke from the incident with the ability to see grotesque spirits. It's a gay Sixth Sense, with lots of gore.\
+Updates: Previously Gay Tier, abandoned by creator.
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-176082)
 
 [Lisowski](http://lisowski.thewebcomic.com/chapters/69242/book-one/)\
 Guy who has no feelings suddenly has feelings for guy who takes lots of medication to have no feelings.\
