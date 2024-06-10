@@ -436,14 +436,14 @@ Alt Links: [PDF Download](https://rot-iron.itch.io/hotblood)
 
 [Hotblood: Zarco](https://tapas.io/series/zarco/info)\
 Horse Fucking II: The Fuckening.\
-Updates: Wednesday
+Updates: Wednesday\
 Alt Links: [Included in HotBlood PDF Download](https://rot-iron.itch.io/hotblood)
 
 [**The Hunt**](https://tapas.io/series/TheHunt)\
 From the creator of Bird Twinks, AKA Avilae, comes Gay Buzzfeed Unsolved\
 Updates: Fridays (When she gets to it)
 
-[~~Icarus~~](http://fifty-three.net/icarus/) (No free links available.)\ 
+[~~Icarus~~](http://fifty-three.net/icarus/) (No free links available.)\
 Two dudes who have no idea what the hell they're doing. Kolya wants to fly, Ptichka wants to go home, and neither of those things seem likely to happen\
 Updates: The story is complete.\
 Alt Links: [Paid Link](https://mkharris.gumroad.com/l/icaruscomic?layout=profile)
