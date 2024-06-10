@@ -78,9 +78,9 @@ A qt pierced freckled outspoken gay guy in a rural conservative town who suddenl
 Updates: The story is complete
 
 [Backdoor](https://tapas.io/series/Backdoor)\
-Sam is a young man dreaming about being a great journalist, and travelling through the world. Instead he works in a fast food, and struggles to pay his rent every month. Life goes on but Sam starts to see very strange things around him\
-Updates: On an indefinite hiatus as of April 2021\
-Alt Links:[Archive.org](https://archive.org/details/smackjeeves-160751/160751/comic/covers/chapter_01.jpg)\
+Sam is a young man dreaming about being a great journalist, and travelling through the world. Instead he works in a fast food, and struggles to pay his rent every month. Life goes on but Sam starts to see very strange things around him.  
+Updates: On an indefinite hiatus as of April 2021  
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-160751/160751/comic/covers/chapter_01.jpg)
 
 [**Banquet**](https://www.banquetcomic.com)\
 A baby falls to hell and gets adopted by king demon bear and his twunk bodyguard/lover. Author seems keen on fanservice, but nothing hardcore yet.\
