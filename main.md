@@ -468,7 +468,7 @@ Up|dates: We|ekly
 Adorably awkward freshman kid meets cooler senior guy, spaghetti spilling ensues. Now new and improved (Meaning they got rid of everything good about it).\
 Updates: No specific update time
 
-[~~**Jason**~~](http://jasoncomic.smackjeeves.com/)\
+[~~**Jason**~~](http://jasoncomic.smackjeeves.com/) (Defunct, could not find replacement link.)\
 Jason is in his first year of university and is torn between two guys, one from his past and the other from the present. All while recovering from stuff that happened in between them.\
 Updates: On hiatus
 
@@ -480,21 +480,21 @@ Updates: So rarely that it's basically in a perpetual hiatus.
 I don't even...\
 Updates: The story is complete
 
-[Land Underground](https://tapas.io/series/LaNd-Underground)\
+[~~Land Underground~~](https://tapas.io/series/LaNd-Underground) (Defunct, could not find replacement link.)\
 The story about the guy who said "I love you" at the subway station.\
 Updates: Weekly
 
-[Leftovers](http://leftovers-comic.tumblr.com/)\
+[Leftovers](https://leftovers-comic.tumblr.com/post/131699310332)\
 The lives of four childhood friends as they struggle to overcome love, loss, and the overwhelming need to find their place in the world\
 Updates: Wednesdays
 
-[Lies Within](http://lieswithincomic.com/)\
+[Lies Within](http://lieswithincomic.com/comic/page-0)\
 Yet another fucking demon/vampire comic.\
 Updates: Fridays
 
 [Life Outside the Circle](https://www.webtoons.com/en/romance/life-outside-the-circle/list?title_no=1260)\
 Hunky hipster from Helsinki moves to the snowy countryside, full of misconceptions on how #authentic it's like. His neighbor, a single dad hillbilly, falls for him real quick, but is really awkward around his crush, and finds out the difficulties of no longer passing for straight. Lotsa humor, lotsa feels.\
-Updates: The Story is complete
+Updates: The story is complete
 
 [**Little Earthquakes**](https://tapas.io/series/Little-Earthquakes/info)\
 Ryan is an amateur musician with a lot of friends and no future plans. He doesn't work, engage in long lasting relationships, or take anything seriously, What he does do, is fall in love with pretty much every guy he sets his eyes on - including the stranger he once banged in a motel and who he knows absolutely nothing about.\
