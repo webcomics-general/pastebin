@@ -516,7 +516,7 @@ Updates: Weekly
 
 [~~Mackie~~](https://tapas.io/series/Mackie/info) (Defunct, cannot find replacement link.)\
 Twink wants to kill his dad and runs to his morbid ex-boyfriend for help. Feelings may ensue? That or murder. Made by mackieanon, a brown twink who posts on /wcg/.\
-Updates: Several times a week.
+Updates: Per author, working on new project. Likely abandoned. 
 
 [Magical Boy Basil](http://magicalboybasil.com/chapter-1-page-1)\
 15 year old Basil moved into a new, possibly haunted, house with his parents and brother. First night there he has a weird dream with a qt guy in it, who's literally called 'White Knight'. Weird shit starts happening and Basil totally wants to feel White Knights sword.\
@@ -527,13 +527,14 @@ Dude falls in love in a fugitive merman who escaped his tyrannical father to wor
 Updates: Weekly (But sometimes biweekly)\
 Alt Links: [Archive.org (First chapter only)](https://web.archive.org/web/20211023170252/https://tapas.io/episode/1894231)
 
-[Matias and Anders](http://matianders.tumblr.com/)\
+[~~Matias and Anders~~](http://matianders.tumblr.com/) (Defunct, cannot find replacement link.)\
 Finnish uni student wants to get boned by his Scandinavian lit professor.\
 Updates: A few pages a month
 
-[**Meat & Bone**](http://meatandbonecomic.com)\
+[~~**Meat & Bone**~~](http://meatandbonecomic.com) (No free versions available.)\
 Slice-of-life comic following an eclectic group of characters in some hip, Canadian city.\
-Updates: Tuesdays and Thursdays
+Updates: Tuesdays and Thursdays\
+Alt Links: [Paid Version](https://www.tcj.com/reviews/meat-bone/)
 
 [Midnight Coffee](https://tapas.io/series/MidnightCoffee/info)\
 Midnight Coffee is the story about two extremely different guys that meet by coincidence and bond over coffee and not so meaningful talks during long winter nights.\
@@ -547,7 +548,7 @@ Updates: Weekly
 Enemies to friends to lovers at a magic school\
 Updates: No regular update schedule
 
-[**Monsters that Bite**](http://monstersthatbitecomic.tumblr.com/)\
+[**Monsters that Bite**](https://monstersthatbitecomic.tumblr.com/post/183972436003/monsters-that-bite-chapter-one-page-one-first)\
 Gay necromancer has trouble controlling his powers when he gets horny.\
 Updates: No regular update schedule
 
@@ -555,9 +556,9 @@ Updates: No regular update schedule
 A sheltered young mutant meets a soldier who's seen far too much for his short life.\
 Updates: Sundays
 
-[Muted](https://tapas.io/series/muted-comic)\
+[Muted](https://www.webtoons.com/en/canvas/muted-now-on-originals/list?title_no=115020)\
 Jasper meets a mute gay.\
-Updates: Twice a month
+Updates: The story is complete.
 
 [My Dictator Boyfriend](https://www.webtoons.com/en/comedy/my-dictator-boyfriend/list?title_no=1391)\
 Aka greenhorn closeted dictator falls in love with his bodyguard\
