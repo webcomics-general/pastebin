@@ -175,7 +175,7 @@ Prince Gladimir was never meant to fall for a Pirate. Swearing off love for duty
 Updates: Wednesdays
 
 [Conformity](https://tapas.io/series/Conformity)\
-Small town rural fags.\
+Small town rural gays.\
 Update: No regular update schedule
 
 [Copper Blue](https://tapas.io/series/Copper-eyes/)\
@@ -271,7 +271,7 @@ Updates: Sundays, appears abondoned\
 Alt Links: [Tapas](https://tapas.io/series/EPHEMERAL/info)
 
 [Everyone Hates Debate Club](http://everyone-hates-debate-club.smackjeeves.com/)\
-Swimmer highschool fag crushes over his qt blonde best friend; given the banner says "BL" they're probably gonna fug\
+Swimmer highschool gay crushes over his qt blonde best friend; given the banner says "BL" they're probably gonna fug\
 Updates: No regular update schedule\
 Alt Links: [Archive.org](https://archive.org/details/smackjeeves-145059)
 
@@ -449,7 +449,7 @@ Updates: The story is complete.\
 Alt Links: [Paid Link](https://mkharris.gumroad.com/l/icaruscomic?layout=profile)
 
 [Icebreaker](https://tapas.io/series/Icebreaker)\
-Quiet and hot brown-haired hockey player is helped out by outgoing and faggy blond-haired figure skater after a teammate hits him. Feelings may ensue. Possibly set in Minnesota.\
+Quiet and hot brown-haired hockey player is helped out by outgoing and effeminate blond-haired figure skater after a teammate hits him. Feelings may ensue. Possibly set in Minnesota.\
 Updates: No regular update schedule
 
 [I Fell in Love with a Gangster](https://tapas.io/series/I-fell-in-love-with-a-Gangster)\
@@ -511,7 +511,7 @@ Updates: The story is complete.\
 Alt Links: [Tumblr](https://thelovesickdiaries.tumblr.com/) [Sequel (Possibly abandonded?)](https://tapas.io/series/Pumpkin-Boy/info)
 
 [Lovestruck](https://www.webtoons.com/en/challenge/lovestruck/list?title_no=404284)\
-Typical fag drama in high school and whatever\
+Typical gay drama in high school and whatever\
 Updates: Weekly
 
 [~~Mackie~~](https://tapas.io/series/Mackie/info) (Defunct, cannot find replacement link.)\
@@ -796,34 +796,34 @@ Cuddle porn.\
 Updates: No regular update schedule
 
 [**Spurs and Stripes**](https://spursandstripescomic.com/comics/first/)\
-Emoboy Ultrafag works in a ranch in the country to pay for some damage he did. Owner's son is in charge and a closeted hot one-eyed cowboy of a few words with a short temper. Closeness and sexual tension ensue.\
+Emoboy Ultragay works in a ranch in the country to pay for some damage he did. Owner's son is in charge and a closeted hot one-eyed cowboy of a few words with a short temper. Closeness and sexual tension ensue.\
 Updates: The story is complete
 
-[Squirrel Prince](http://www.mediafire.com/download/zgz3w61mxevqj97/The+Squirrel+Prince+by+Duckpatch.rar)\
+[~~Squirrel Prince~~](http://www.mediafire.com/download/zgz3w61mxevqj97/The+Squirrel+Prince+by+Duckpatch.rar) (Defunct, could not find replacement link.)\
 Crown prince goes into magic forest to save kingdom, meets guy cursed as a squirrel, and has to solve vague riddles\
 Updates: The story is complete
 
-[**Starfighter**](starfightercomic.com/)\
+[**Starfighter**]([starfightercomic.com/](http://starfightercomic.com/chapter_01_page.php?page=Chapter_01_Page_01.jpg&enter=yes))\
 It's about gay sex. IN SPAAAAAAAAACE! We don't care about the story as long as she keeps drawing porn.\
 Updates: The story is complete.
 
-[Stolen](http://gestohlen.smackjeeves.com/)\
+[~~Stolen~~](http://gestohlen.smackjeeves.com/) (Defunct, could not find replacement link.)\
 Everyone is gay, works out, has great bodies, and wears skin tight clothing. Also I think there's a plot?\
 Updates: Sundays
 
-[Suave and Rudy](https://tapastic.com/series/Suave-X-Rudy)\
+[Suave and Rudy](https://tapas.io/series/Suave-X-Rudy)\
 Two people with nothing in common who achieve a love that will transcend time.\
 Updates: No regular schedule
 
 [Sunshine Boy](https://www.sunshineboycomic.com/sunshine-boy/chapter-1-cover)  
 Formerly "Leftovers."  
->Sunshine Boy is a slice of life story about the difficulties of parenthood, as well as self-esteem, self acceptance, and how relationships grow and change over time. A lot of events present in the story are based around the author's childhood and how they grew up.  
-
+Sunshine Boy is a slice of life story about the difficulties of parenthood, as well as self-esteem, self acceptance, and how relationships grow and change over time. A lot of events present in the story are based around the author's childhood and how they grew up.  
 Updates: On hiatus until 1 Jan 2025.
 
 [The Summer Hikaru Died](https://mangakakalot.com/manga/au927884)\
 Japanese rural backwoods gay horror. Hikaru is dead, but his body and love for Yoshiki isn't.\
-Updates: Once a month if you're lucky
+Updates: Once a month if you're lucky  
+Alt Links: [Bato.to](https://bato.to/series/131420/the-summer-hikaru-died-official)
 
 [Summer Boo](https://tapas.io/series/summerboo)\
 Two dudes who have the hots for each other but won't just come out and say it pretend date and kiss under the pre-text of 'practice' for straight dating.\
@@ -833,9 +833,10 @@ Updates: Updates every Friday
 When Stephen, a quiet bookworm from Oregon, gets his admission letter from the University of Hawaii at Manoa he was anticipating some life changes. What he didn't anticipate was meeting Alex, an upbeat and easygoing local who offers to be his guide around the island. After that, it's love at first sight.\
 Updates:Once a week
 
-[The Sun Prince, The Saint, and The Changeling](https://tapas.io/series/the-sun-prince)\
+[~~The Sun Prince, The Saint, and The Changeling~~]([https://tapas.io/series/the-sun-prince](https://chamastories.tumblr.com/about))\
 Holy Roman gays.\
-Updates: Wednesdays
+Updates: Three completed volumes, abandoned as of 2020.  
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-170723)
 
 [Sunny Side Skies](https://tapas.io/series/sunnysideskies)\
 The story of an unenthusiastic barista and a fluffy college student.\
@@ -845,7 +846,7 @@ Updates: Twice a week.
 Two boys. One mage, one human. Both terrible at romance. Hurt by others in the past, Oscar and Ezra are wary to love again. But together, they might be able to mend old scars and form new, happier memories. And where else would you rather be for that besides Fawkes' Flowers - the magical florist and tea emporium?\
 Updates: Weekly
 
-[Teddyboy](https://tapas.io/series/Teddyboy)\
+[~~Teddyboy~~](https://tapas.io/series/Teddyboy) (Defunct, could not find replacement link.\
 Awkward twink with a crush.\
 Updates: Allegedly weekly
 
@@ -861,17 +862,18 @@ Updates: Thursdays
 A story about a young rentboy who's been circling all night long trying to find warmth in strangers, yet he knows it wont last. As the endless nights stagger along, he becomes more certain that he's a lost cause. Just as he was about to lose hope, something unexpected comes his way.\
 Updates: No regular update schedule
 
-[This is Not Fiction](http://www.thisisnotfiction.com/)\
+[This is Not Fiction](https://www.thisisnotfiction.com/comic/ch-01-pg-01)\
 A guy falls in love with an anonymous romance novelist.\
 Updates: Mondays
 
-[A Thousand Yards](https://www.webtoons.com/en/challenge/a-thousand-yards/list?title_no=204933)\
+[~~A Thousand Yards~~](https://www.webtoons.com/en/challenge/a-thousand-yards/list?title_no=204933) (Defunct, could not replace link.)\
 Military romance tragedy\
 Updates: No regular update schedule.
 
-[Tied in Red](http://tied-in-red.smackjeeves.com)\
+[Tied in Red](https://tapas.io/series/Tied-In-Red/info)\
 Slice of life BL about two normal guys tied together by a string, who begin falling for each other.\
-Updates: Thursdays
+Updates: Thursdays  
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/tied-in-red-complete/list?title_no=310637) [Archive.org](https://archive.org/details/smackjeeves-146663)
 
 [To Be Honest](https://tapas.io/series/To-Be-Honest/info)\
 Teenagers discovering new things about friendship, love, forgiveness and most importantly, themselves.\
