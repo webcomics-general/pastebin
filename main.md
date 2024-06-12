@@ -818,6 +818,7 @@ Updates: No regular schedule
 [Sunshine Boy](https://www.sunshineboycomic.com/sunshine-boy/chapter-1-cover)  
 Formerly "Leftovers."  
 >Sunshine Boy is a slice of life story about the difficulties of parenthood, as well as self-esteem, self acceptance, and how relationships grow and change over time. A lot of events present in the story are based around the author's childhood and how they grew up.  
+
 Updates: On hiatus until 1 Jan 2025.
 
 [The Summer Hikaru Died](https://mangakakalot.com/manga/au927884)\
