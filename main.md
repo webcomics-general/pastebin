@@ -486,7 +486,7 @@ Updates: Weekly
 
 [Leftovers](https://leftovers-comic.tumblr.com/post/131699310332)\
 The lives of four childhood friends as they struggle to overcome love, loss, and the overwhelming need to find their place in the world\
-Updates: Wednesdays
+Updates: Abandoned. Now rebooted and re-titled (See Sunshine Boy)
 
 [Lies Within](http://lieswithincomic.com/comic/page-0)\
 Yet another fucking demon/vampire comic.\
@@ -775,15 +775,15 @@ Updates: On hiatus
 A gay YA novel, made into a webcomic for some reason.\
 Updates: Weekly
 
-[**Space Jinx**](http://misadventurecentral.com/)\
+[~~**Space Jinx**~~](http://misadventurecentral.com/) (Now a paid version.)\
 Space soldier accidentally orders a sexbot, they fuck around with each other and their other roommate. Dicks everywhere.\
-Updates: Rarely
+Updates: The story is complete.
 
-[Sparks](https://tapas.io/episode/1817069)\
+[Sparks](https://tapas.io/series/Sparkscomic/info)\
 Graduation is only a few days away, and the days are numbered for Philo- a young Satyr about to finish dead last in his class. When he's paired together during training with Atlas- the aloof star student- a magical accident will set events into motion that neither of them could have possibly predicted.\
 Updates: Mondays and Fridays
 
-[**Spectre**](spectrecomic.com/index.html)\
+[~~**Spectre**~~](spectrecomic.com/index.html) (Defunct link, could not find replacement.)\
 Gay guy is kidnaped by an evil organization. Rape and torture ensues.\
 Updates: Rarely. Was on hiatus for well over a year.
 
@@ -791,11 +791,11 @@ Updates: Rarely. Was on hiatus for well over a year.
 Gay shota vampire falls in love with human surfer boy.\
 Updates: Sundays (Possibl)
 
-[Springtime of Yuuth](https://tapas.io/series/Springtime-of-Yuuth)\
+[Springtime of Yuu](https://tapas.io/series/Springtime-of-Yuuth)\
 Cuddle porn.\
 Updates: No regular update schedule
 
-[**Spurs and Stripes**](http://www.spursandstripescomic.com/)\
+[**Spurs and Stripes**](https://spursandstripescomic.com/comics/first/)\
 Emoboy Ultrafag works in a ranch in the country to pay for some damage he did. Owner's son is in charge and a closeted hot one-eyed cowboy of a few words with a short temper. Closeness and sexual tension ensue.\
 Updates: The story is complete
 
@@ -814,6 +814,11 @@ Updates: Sundays
 [Suave and Rudy](https://tapastic.com/series/Suave-X-Rudy)\
 Two people with nothing in common who achieve a love that will transcend time.\
 Updates: No regular schedule
+
+[Sunshine Boy](https://www.sunshineboycomic.com/sunshine-boy/chapter-1-cover)  
+Formerly "Leftovers."  
+>Sunshine Boy is a slice of life story about the difficulties of parenthood, as well as self-esteem, self acceptance, and how relationships grow and change over time. A lot of events present in the story are based around the author's childhood and how they grew up.  
+Updates: On hiatus until 1 Jan 2025.
 
 [The Summer Hikaru Died](https://mangakakalot.com/manga/au927884)\
 Japanese rural backwoods gay horror. Hikaru is dead, but his body and love for Yoshiki isn't.\
