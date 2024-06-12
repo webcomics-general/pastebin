@@ -564,45 +564,48 @@ Updates: The story is complete.
 Aka greenhorn closeted dictator falls in love with his bodyguard\
 Updates: Thursdays and Sundays
 
-[My Stereo Robot](http://mystereobot.smackjeeves.com/)\
+[My Stereo Robot](https://tapas.io/series/MyStereoBot/info)\
 In the city of Voxen Tin, Infinity, an odd looking stereohead, tries to live his life as best as he can, along with his partner, Cloudburn, and his cousin, Ohm.\
 Updates: The story is complete
 
-[Neighbor](http://slashpaloozawebcomics.tumblr.com/)\
+[Neighbor](https://slashpaloozawebcomics.tumblr.com/post/54598453540/neighbor-pg1-subscribe)\
 Teenage boys (With actual body hair for a change) become neighbors.\
 Updates: Almost never unless you pay up
 
-[**Nine Stones**](https://m.tapastic.com/series/NINE-STONE)\
+[**Nine Stones**](https://tapas.io/series/NINE-STONES/info)\
 Comic about drug lords son who is schizophrenic I think and fucks some drug packer. NSFW due to torture porn, not regular porn.\
 Updates: Every few days
 
-[**Ninety Nine Righteous Men**](http://ninetyninerighteousmen.webcomic.ws/)\
-A trio of literal jesus-fags enter a hate/lust triangle when one of them gets possessed by the devil\
-Update: The story is complete
+[**Ninety Nine Righteous Men**](https://tapas.io/series/99RM/info)\
+A trio of literal jesus-fags enter a hate/lust triangle when one of them gets possessed by the devil.  
+Update: The story is complete.  
+Alt Links: [Paid Versions](http://ninetyninerighteousmen.webcomic.ws/)
 
-[No End](https://www.noendcomic.com/)\
+[No End](https://www.noendcomic.com/comic/chapter-1-cover)\
 Zombie comic with gays in it.\
 Updates: Sundays
 
-[**Not Serious about Serious**](http://www.webtoons.com/en/challenge/not-serious-about-serious/list?title_no=83292)\
+[**Not Serious about Serious**](https://www.webtoons.com/en/canvas/not-serious-about-serious/list?title_no=362388)\
 A story about two friends, one "bi" and one curious, set in Russia.\
-Updates: No regular schedule, updates in chunks
+Updates: No regular schedule, updates in chunks.
 
 [Nurse's Station](https://tapas.io/series/Nurses-Station)\
 Kairis, an overly affectionate and curious guy, is a physical education professor at his daughter's middle school. Due to an injury when he was in his prime, he frequently visits the school nurse in order to manage recurring pain. However, when the school introduces a new head-nurse on campus, Kairis finds a new fascination with the sour-faced man.\
 Updates: Saturdays
 
-[Obnoxious Hero-Kun](http://www.smackjeeves.com/comicprofile.php?id=146954)\
+[Obnoxious Hero-Kun](https://tapas.io/series/ohk/info)\
 A reluctant romance between the obnoxious hero and his classmate.\
-Updates: Tuesdays
+Updates: Tuesdays  
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/obnoxious-hero-kun/list?title_no=111230) [Archive.org](https://archive.org/details/smackjeeves-146954)
 
-[O Human Star](ohumanstar.com/)\
+[O Human Star](https://ohumanstar.com/comic/chapter-1-title-page/)\
 Robots and shit.\
 Updates: The story is complete.
 
-[OMG Check Please](http://checkpleasecomic.com/)\
+[OMG Check Please](https://www.checkpleasecomic.com/comic/01-01-01)\
 Gay figure skater joins his university hockey team. It's a story about hockey and friendship and bros and trying to find yourself during the best 4 years of your life.\
-Updates: The story is complete.
+Updates: The story is complete.  
+Alt Links: [Webtoons (rebooted?)](https://www.webtoons.com/en/canvas/check-please/list?title_no=954251)
 
 [The One Who Loved You From Behind](https://tapastic.com/episode/400295)\
 Boy has an "online-girlfriend" who is actually a boy in a wheelchair who goes to his school\
@@ -616,9 +619,10 @@ Updates:Every two weeks or so.
 A short story about italian food, falling in love and orange hickeys. Mama mia, that's a spicy meatball.\
 Updates: Twice a week
 
-[Our First Mistake](https://www.smackjeeves.com/discover/articleList?titleNo=301230)\
+[Our First Mistake](https://www.webtoons.com/en/canvas/our-first-mistake/list?title_no=504484)\
 High school friends go to college, and one gets a roommate they have friction with\
-Updates: No regular update schedule
+Updates: No regular update schedule  
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-301230)
 
 [Our Heroes](https://tapas.io/series/Our-Heroes)\
 What if the Purple Man was a gay teen going to a school for superheroes?\
@@ -626,17 +630,18 @@ Updates: Once a week
 
 [Out of the Blue](https://tapastic.com/series/OutoftheBlue)\
 Boy in the late 40s meets merman (merboy?) at the lake\
-Updates:Sundays (Usually)
+Updates: Sundays (Usually)
 
 [Paper Roses](https://tapas.io/series/Paper-Roses)\
 Murderous robot shota that everyone isn't freaking out about for some reason???\
 Updates: Frequently
 
-[**Paradox**](http://paradoxcomic.smackjeeves.com/)\
+[~~**Paradox**~~](http://paradoxcomic.smackjeeves.com/) (Defunct, could not find replacement.)\
 Another comic about prostitues, this time as elves or some shit.\
-Updates: The story is complete
+Updates: The story is complete.  
+Alt Links: [Possible Archive.org link?](https://archive.org/details/smackjeeves-28784)
 
-[A Peaceful Min](https://tapas.io/series/Peaceful-Mind)\
+[A Peaceful Min](https://tapas.io/series/Peaceful-Mind/info)\
 Eunwoo isn't the regular boy, even though he appears to be. He has a power, the ability to read minds. He'd lived his whole life dealing with it without problems until a boy called Hyun-wook enters his life and changes it forever.\
 Updates: Every five days
 
@@ -648,34 +653,36 @@ Updates: Allegedly, weekly
 Obnoxious Hero-Kun redux.\
 Updates: No regular update schedule
 
-[Platinum Black](http://platinumblackcomic.com)\
+[Platinum Black](http://platinumblackcomic.com/archives/comic/chapter-1-cover)\
 A hopelessly shy but legendary fighter starts a relationship with a famous actor on the monster-filled island of allemune.\
-Updates:No regular schedule
+Updates: Likely abandoned, no updates since 2016.
 
-[Pretty Mouth](http://www.prettymouthcomic.com/)\
+[Pretty Mouth](https://prettymouth.thecomicseries.com/comics/first)\
 Monster boys fucking, angsting, probably hooking up again later.\
-[Prequel comic](http://www.prettymouthcomic.com/?webcomic1=the-magpie)\
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/pretty-mouth/list?title_no=954210) [Prequel comic](https://themagpie.thecomicseries.com/comics/first)\
 Updates: The story is complete.
 
 [Prince of Ovale](https://tapas.io/series/Prince-of-Ovale)\
 Eriol was an Emerian god who traded his Eternal Energy to revive his fallen lover. Under the Heaven Rules, they were destined to see each other again 2000 years later. But it wasn't an easy feat, some evil forces intended to stop them. Would he finally able to find and remind his lover of their destiny before the time runs out?\
 Updates: Once or twice a week
 
-[Psychometric](http://psychrometric.smackjeeves.com/)\
+[~~Psychometric~~](http://psychrometric.smackjeeves.com/) (Defunct, could not find replacement.)\
 It's gays.... in spaaaace! Also there's some genocide plot they're trying to prevent or something.\
 Updates: Sundays
 
-[Quick$silver](http://www.quicksilvercomic.com/)\
+[Quick$silver](https://www.quicksilvercomic.com/comic/1)\
 Crime and debauchery in the literal underground of Las Vegas.\
 Updates: Thursdays
 
-[Rainflowers](http://rainflowers.smackjeeves.com)\
+[Rainflowers](https://tapas.io/series/Rainflowers/info)\
 A clueless, but cheerful guy who falls in love with a temperamental, hard-working flower-lover\
-Updates: The story is complete
+Updates: The story is complete.  
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/rainflowers/list?title_no=316822)
 
-[Raise a Bat](https://asclepiasscans.wordpress.com/projects/raising-a-bat/)\
+[Raise a Bat/My Pet Bad](https://asclepiasscans.wordpress.com/projects/raising-a-bat/)\
 Korean, new transfer student befriends weird vampire boy and feeds him blood/takes care of him and they ~fall in love~ (sounds generic but it's well-written)\
-Updates: The bat has been raised
+Updates: The bat has been raised.  
+Alt Links: [Bato.to](https://bato.to/series/81850)
 
 [**The Reaper and the Waiting**](https://www.webtoons.com/en/challenge/the-reaper-and-the-waiting/list?title_no=311439)\
 About a Grim Reaper and a mysterious soul that follows him around everywhere.\
@@ -685,29 +692,31 @@ Updates: Monthly
 Kid with dead parents meets someone.\
 Updates: No regular update schedule. Will probably stop updating in the near future.
 
-[Revelations of Eros](http://revelationoferos.smackjeeves.com/)\
+[Revelations of Eros](https://tapas.io/series/Revelation-of-Eros/info)\
 Mexican migrant visits American university\
-Updates: Sundays
+Updates: Every second Friday.  
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/revelation-of-eros/list?title_no=103965)
 
-[Ride or Die](https://www.rideordiecomic.com/comic)\
+[Ride or Die](https://www.rideordiecomic.com/comic/000)\
 After discovering his mother's forgotten muscle car, Lucky fixes it with the help of his hot-headed, former-crush named Vick and is launched into the world of street racing in an effort to learn more about her. It's Christine meets Ghost Rider meets Fast and Furious but gayer.\
 Updates: Every two weeks.
 
-[**Robber Robert**](http://robberrobert.orgymania.net/)\
+[**Robber Robert**](http://robberrobert.orgymania.net/robberrobert/chapter-1)\
 Absurdist alien fucking.\
-Updates: Mondays (Allegedly)
+Updates: The story is complete.
 
 [Rock and Riot](https://tapastic.com/episode/186441)\
 LGBTQ+ 'gangs' in the 1950s, very docile. It's a comedy/slice of life comic that touches occasionally on relationships\
 Updates: Sporadically
 
-[Ruby Slippers](https://rubyslipperscomic.tumblr.com/)\
+[~~Ruby Slippers~~](https://rubyslipperscomic.tumblr.com/) (Defunct, could not find replacement.)\
 Space Opera with eventual gay\
 Updates: Sunday
 
-[Sakana](http://www.sakana-comic.com/)\
+[Sakana](https://www.sakana-comic.com/comic/title-page-vol-1)\
 Japanese gays at the fish market.\
-Updates: Tuesdays and Fridays. In hiatus since 02/2020
+Updates: Tuesdays and Fridays.  
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/sakana/list?title_no=934213)
 
 [Same Shit, Different Day](https://tapastic.com/series/Same-Shit-Different-Day)\
 Semi-autobiographical account of the artist's interactions with his boyfriend\
@@ -717,7 +726,7 @@ Updates: No regular update schedule
 An author with a secret living secretly in the sticks gets discovered.\
 Updates: Weekly
 
-[Sea Steps](https://tapas.io/series/Sea-Steps)\
+[~~Sea Steps~~](https://tapas.io/series/Sea-Steps) (Defunct link, could not find replacement.)\
 A comic made by one of us. A man with no memories of how he got there wakes up on a raft in the middle of the ocean.\
 Updates: No regular schedule. Assume that it will abruptly when the creator gets a bf.
 
@@ -725,7 +734,7 @@ Updates: No regular schedule. Assume that it will abruptly when the creator gets
 The act of finding something valuable or delightful when you are not looking for it. Spencer and Colin are about to experience this.\
 Updates: Weekly
 
-[Sfeer Theory](http://sfeertheory.littlefoolery.com/)\
+[Sfeer Theory](https://sfeertheory.com/comic/01-00/)\
 A school of academic magic in an empire that's struggling to maintain its control over neighboring countries. The main character is super gay.\
 Updates: No regular update schedule
 
@@ -745,11 +754,12 @@ Updates: Mondays and Fridays
 An adult and a changeling in the form of a child.\
 Updates: No regular schedule, but usually once a week.
 
-[**Sign**](https://mangadog.club/read/sign-ker/vol1-ch1/2326.html)\
+[**Sign**](https://bato.to/title/71531)\
 A manhwa in which a part-timer works at a café and can't help getting turned on by his deaf boss's voice.\
-Update: No regular update schedule
+Update: The story is complete.  
+Alt Links: [Lezhin (Support the author!)](https://www.lezhin.com/en/comic/sign_en)
 
-[Sing the Moon Down](http://singthemoondown.smackjeeves.com/)\
+[~~Sing the Moon Down~~](http://singthemoondown.smackjeeves.com/) (Defunct, could not find replacement link.)\
 Ginger twink runs a witchery in a small town, meets a long haired burly werewolf.\
 Updates: The story is complete.
 
@@ -757,11 +767,11 @@ Updates: The story is complete.
 A webcomic about preppy kids and underdogs. No relation to the Avril Levigne song.\
 Updates: Weekly
 
-[Society of Vice](http://www.sovcomic.com/)\
+[Society of Vice](https://tapas.io/series/sovcomic/info)  
 Follows the lives of several sexually-troubled people who meet up in a support group held at a fetish bar\
 Updates: On hiatus
 
-[Something like Summer](http://www.gaywebcomics.com/)\
+[Something like Summer](https://tapas.io/series/Something-Like-Summer/info)\
 A gay YA novel, made into a webcomic for some reason.\
 Updates: Weekly
 
