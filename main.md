@@ -984,9 +984,10 @@ Updates: The story is complete.
 
 ### Lesbian Tier
 
-[Agents of the Realm](www.agentsoftherealm.com)\
+[~~Agents of the Realm~~](www.agentsoftherealm.com) (Defunct, cannot find replacement link.)\
 Mahou shoujo with college aged women and a healthy dose of cynicism.\
-Updates: Tuesdays, Thursdays, Sundays
+Updates: Tuesdays, Thursdays, Sundays  
+Alt Link: [Kickstarter?](https://www.kickstarter.com/projects/astreasnexus/agents-of-the-realm-volume-1)
 
 [**Alien Hand Syndrome**](http://ahs-comic.com/)\
 Two girls in an organization that deals with supernatural stuff.\
