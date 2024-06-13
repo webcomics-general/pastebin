@@ -544,6 +544,10 @@ Updates: Weekly
 He was a boy, it was a boy-shaped alien. Can I make it more obvious?\
 Updates: Weekly
 
+[Millenials Kill](https://hplehkonen.com/millenials-kill/)  
+Antifa but make it a mafia bringing about the end of the world. Dumb-as-a-sock journalist investigates. I dunno I'm just the librarian.  
+Updates: [[Citation Needed]](https://xkcd.com/285/)
+
 [**Mismatch**](https://tapas.io/series/Mismatch-BL)\
 Enemies to friends to lovers at a magic school\
 Updates: No regular update schedule
@@ -888,30 +892,33 @@ Updates: Every Monday and Thursday
 A guy and his demon boyfriend.\
 Updates: The "story" is complete
 
-[**Together at the End**](http://togetherattheend.smackjeeves.com/comics/1856874/thanks/)\
+~~**Together at the End**~~ (Defunct link, could not find replacement.\
 Dude 1 finds dude 2 during zombie apocalypse, then kill a rapist, and then agree to travel together.\
-Updates: Rarely
+Updates: Rarely  
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-139751) 
 
 [Torrent](https://tapas.io/series/TORRENT)\
 Kakyus most favourite pastime is teasing Noél in any which way possible. The best way to do that is feeding him unwanted information about sex.\
 Updates: Every few days
 
-[**Tosi Huono Yaoi Sarjis**](http://tosihuonoyaoisarjis.smackjeeves.com/comics/)\
-A weird yaoi satire about some rockstar who goes out with an uguu desu artist. Also contains lesbians, and apparently the rockstar is a demon.\
-Updates: Frequently, but no specific day.
+[~~**Tosi Huono Yaoi Sarjis**~~](http://tosihuonoyaoisarjis.smackjeeves.com/comics/)\
+Same author as "Life Outside the Circle." A weird yaoi satire about some rockstar who goes out with an uguu desu artist. Also contains lesbians, and apparently the rockstar is a demon.\
+Updates: Abandoned, rebooted into "Millenials Kill."  
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-141725)
 
 [**Toxic For You**](https://tapastic.com/series/toxicforyou)\
 The stumbles of love and relationships, and the difficulties of mental illnesses.\
 Updates: Biweekly
 
-[Transfusions](http://transfusionscomic.com/)\
+[Transfusions](http://transfusionscomic.com/comic/01-cover)\
 It's about vampires and discovering you like the dick, but the protagonist is totes not gay.\
 Updates: Sunday
 
-[Tripping Over You](trippingoveryou.com/)\
+[Tripping Over You](https://www.trippingoveryou.com/comic/wiggle-room)\
 A dramatic fall from Waifu Tier! Formerly two "Brits" in a boarding school in a relationship. A bit of a slog after relationship begins, but it gets better in the last half once they graduate and move in together. Then the comic suddenly ends as some interesting things are about to happen.\
 There is a sequel comic called "Living In Future Tense" which follows an older Milo and Liam that is currently in the planning stage.\
 Updates: The "story" is complete.
+Alt Links: [Sequel](https://www.liftcomic.com/comic/lift-chapter-one)
 
 [Two Losers from Earth](https://www.webtoons.com/en/challenge/two-losers-from-earth/list?title_no=684794)\
 Winter and Nat, strangers to each other, have embarked on a touristy train ride to the moon and back in the hopes of escaping their problems on Earth. Neither of them really knows what to expect from the trip, but finding a new companion definitely wasn't in the plan.\
@@ -921,9 +928,10 @@ Updates: No regular update schedule
 Size differences, the comic.\
 Updates: No regular update schedule
 
-[Until Sunset](http://until-sunset.smackjeeves.com/)\
-Rich boi and a twunky mermaid he has to nurse back to health\
-Update:Tuesdays
+[Until Sunset](https://tapas.io/series/Until-Sunset/info)\
+Rich boi and a twunky mermaid he has to nurse back to health.\
+Update: Tuesdays  
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/until-sunset/list?title_no=79341) 
 
 [Valentine](https://tapastic.com/episode/334132)\
 Gay boy wants to date straight boy, straight boy turns him down but decides to be friends. Feelings could happen.\
@@ -937,9 +945,10 @@ Updates: Infrequently
 People living in a small village near a huge primordial swamp and how they have to fight the dangers emerging from it.\
 Updates: A few pages a week
 
-[What Happens in Carpediem...](http://whic.smackjeeves.com/comics/)\
+[What Happens in Carpediem...](https://www.webtoons.com/en/canvas/what-happens-in-carpediem/list?title_no=649778)\
 Video game romance.\
-Updates: Every few days while the chapter is going on. Takes fairly long breaks in between chapters.
+Updates: The story is complete.  
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-109033) 
 
 [**Where Our Ledge Ends**](whole.smackjeeves.com/comics/2187854/title-page/)\
 Rich nerdy white boy bags cute tanned soccer player, lots of kissing and grinding and almost buttsex\
