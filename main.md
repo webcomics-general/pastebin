@@ -950,27 +950,27 @@ Video game romance.\
 Updates: The story is complete.  
 Alt Links: [Archive.org](https://archive.org/details/smackjeeves-109033) 
 
-[**Where Our Ledge Ends**](whole.smackjeeves.com/comics/2187854/title-page/)\
+[~~**Where Our Ledge Ends**~~](www.whole.smackjeeves.com/comics/2187854/title-page/) (Defunct, could not find replacement link.)\
 Rich nerdy white boy bags cute tanned soccer player, lots of kissing and grinding and almost buttsex\
 Updates: No regular update schedule
 
-[**Winter Light**](https://tapas.io/series/Winter-Light)\
+[~~**Winter Light**~~](https://tapas.io/series/Winter-Light) (Defunct, could not find replacement link.)\
 A sweet love story under the snowflakes. a.k.a boy's love Dr. Stone\
 Updates: Weekly
 
-[Wrong Answer](http://wronganswer.smackjeeves.com/)\
+[~~Wrong Answer~~](http://wronganswer.smackjeeves.com/) (Defunc, could not find replacement link.)\
 Rich private high school school gay drama\
 Updates: No regular schedule, and every website it was on has been deleted.
 
-[XYventures](http://blackadventurescomic.com/)\
+[XYventures](https://blackadventurescomic.com/2014/09/24/xy-episode-01-part-01/)\
 An angsty brown fucboi Pokemon XY protagonist goes to Kalos to impress a boy, hi-jinks ensue.\
 Updates: No regular schedule.
 
-[Yet Another Fantasy Gamer Comic](http://yafgc.net/?id=1)\
+[Yet Another Fantasy Gamer Comic](https://www.yafgc.net/comic/bob-meets-gren/)\
 A D&D satire comic that apparently has one gay character in it.\
 Updates: Almost every day.
 
-[Yin and Yang](https://tapastic.com/series/Yin--Yang)\
+[~~Yin and Yang~~](https://tapastic.com/series/Yin--Yang) (Defunct, could not find the specific fic.)\
 Yin had never felt beautiful until he went to an art exhibition and met a very special someone.\
 Updates: The story is complete
 
@@ -978,7 +978,7 @@ Updates: The story is complete
 Angel twink falls in love with a demon prince.\
 Updates: The 10th, 20th and 30th of each month.
 
-[2 Slices](http://2slicescomic.com/)\
+[2 Slices](https://www.2slicescomic.com/comic/2-slices-cover)\
 Extravert helps a shy guy get a girl, but then falls for the shy guy.\
 Updates: The story is complete.
 
