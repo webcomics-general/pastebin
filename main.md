@@ -989,15 +989,15 @@ Mahou shoujo with college aged women and a healthy dose of cynicism.\
 Updates: Tuesdays, Thursdays, Sundays  
 Alt Link: [Kickstarter?](https://www.kickstarter.com/projects/astreasnexus/agents-of-the-realm-volume-1)
 
-[**Alien Hand Syndrome**](http://ahs-comic.com/)\
+[**Alien Hand Syndrome**](https://ahs-comic.com/archive/page-1/)\
 Two girls in an organization that deals with supernatural stuff.\
-Updates: Whenever.
+Updates: Whenever. No updates since 2019.
 
 [Always Human](http://www.webtoons.com/en/romance/always-human/list?title_no=557)\
 In a future where body modifications are easy and commonplace, one girl meets another girl who is unable to use them.\
 Updates: The story is complete
 
-[As The Crow Flies](melaniegillman.com/?p=96)\
+[As The Crow Flies](https://www.melaniegillman.com/comic/01-25-2012/)\
 Black lesbian goes to summer camp and stuff. Social justice warriors rejoice.\
 Updates: Every 3 or 4 days
 
@@ -1005,25 +1005,23 @@ Updates: Every 3 or 4 days
 A 34 year old doctor accidentally sleeps with a 16 year old student\
 Updates: No regular schedule
 
-[Blue Rock Tapestry](http://ellejohara.com/threads)\
+[Blue Rock Tapestry](http://ellejohara.com/threads/001)\
 Two universes with gateways joining them. Basically all the main characters are either lesbian or gay (mostly lesbian).\
 Updates: Allegedly on Monday, Wednesday, and Friday
 
-[Broadside](http://broadsidecomic.com/)\
-A runaway girl stows away on a pirate ship and meets a lot of beefy lesbians.\
-Updates: Saturdays
-
-[**Can't Look back**](http://cantlookback.smackjeeves.com/)\
+[**Can't Look back**](https://cantlookbackcomic.tumblr.com/page/30)\
 Lesbians.\
-Updates: The story is complete.
+Updates: The story is complete.  
+Alt Links: [Comic Rocket Archive](https://www.comic-rocket.com/read/cant-look-back/1) 
 
-[ChaosLife](http://chaoslife.findchaos.com/)\
+[ChaosLife](https://chaoslife.findchaos.com/comic/redditcomic)\
 A semi-autobiographical comic about the agender author and their girlfriend.\
 Updates: Weekly, usually on Mondays.
 
 [**Collar 6**](http://collar6.tumblr.com/)\
 Bondage meets Dragonball Z\
-Updates: Monday, Wednesday, Friday
+Updates: Monday, Wednesday, Friday  
+Alt Links: [Pixiv (Need to Login)](https://www.pixiv.net/user/36336431/series/57230) [Deviantart](https://www.deviantart.com/collarsixx) 
 
 [**Club**](http://katotochan.deviantart.com/)\
 Two women meet in the bathroom at a club\
@@ -1455,6 +1453,11 @@ Updates: Abandoned, hasn't updated since March 2019
 [Best Friends Forever](http://bffcomic.com/)\
 Muscly student and his tiny billionaire friend have a bromance with unwarranted amounts of sexual tension.\
 Formerly Serious Business Tier, ended with no conclusion
+
+[~~Broadside~~](http://broadsidecomic.com/)\
+A runaway girl stows away on a pirate ship and meets a lot of beefy lesbians.\
+Updates: Formerly Lesbian Tier; discontinued, 1:1-6:24 avaialable through Archive.org.  
+Alt Links: [Archive.org](https://web.archive.org/web/20210727043728/https://broadsidecomic.com/comic/1-00/)
 
 [**Buying Time**](http://buyingtime.the-comic.org/about/)\
 A cyberpunk romance\
