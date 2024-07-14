@@ -808,6 +808,10 @@ Updates: The story is complete
 Crown prince goes into magic forest to save kingdom, meets guy cursed as a squirrel, and has to solve vague riddles\
 Updates: The story is complete
 
+[stare down.](https://www.webtoons.com/en/canvas/stare-down/list?title_no=587139)\
+High school students Pas and Nil become locked in a competition of staring contests out of Pas's flirtatious temperament and Nil's competitive spirit. Set in Hong Kong but somehow Nil appears to be the only Hong Kong Chinese student in a school full of Australians. The comic also introduces Ryan, a teammate on Nil's track team, who will have his own gay spin-off after he graduates and goes to uni: [type-blind](https://www.webtoons.com/en/canvas/type-blind/list?title_no=895335).\
+Updates: The story is complete
+
 [**Starfighter**](https://starfightercomic.com/chapter_01_page.php?page=Chapter_01_Page_01.jpg&enter=yes)\
 It's about gay sex. IN SPAAAAAAAAACE! We don't care about the story as long as she keeps drawing porn.\
 Updates: The story is complete.
@@ -928,6 +932,10 @@ Updates: No regular update schedule
 [Two Sizes Too Small](https://tapas.io/series/Two-Sizes-too-small)\
 Size differences, the comic.\
 Updates: No regular update schedule
+
+[type-blind](https://www.webtoons.com/en/canvas/type-blind/list?title_no=895335)\
+Chain-smoking grad student TA Dave falls for dyslexic track athlete undergrad with anger management issues Ryan. This is a spin-off to [stare down.](https://www.webtoons.com/en/canvas/stare-down/list?title_no=587139) and Ryan's old track teammate Nil has short cameos.\
+Updates: Monday
 
 [Until Sunset](https://tapas.io/series/Until-Sunset/info)\
 Rich boi and a twunky mermaid he has to nurse back to health.\
