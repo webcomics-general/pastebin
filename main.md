@@ -6,8 +6,8 @@ Official /wcg/ Tapas account:\
 Username: generalwebcomic@mailinator.com\
 Password: Adrian
 
->[!TIP]
->Any Archive.org links are best accessed by downloading the originals under 'Download Options,' then extracting and opening the 'index.html' file in the comic's folder. Alternatively, you can open it page-by-page once extracted.
+> [!TIP]
+> Any Archive.org links are best accessed by downloading the originals under 'Download Options,' then extracting and opening the 'index.html' file in the comic's folder. Alternatively, you can open it page-by-page once extracted.
 
 ### Waifu Tier
 
@@ -111,7 +111,7 @@ The Little Mermaid, but gay. And there are randomly a lot of topless old women, 
 Updates: Weekly\
 Alt Link: [Tapas](https://tapas.io/series/Bonding-Tides/info)
 
-[**Boned**](http://bonedcomic.com)
+[**Boned**](http://bonedcomic.com)\
 A comedy about four gay guys and a parrot surviving NYC on Halloween weekend.\
 Updates: The story is complete.\
 Alt Link: [Archive](https://boned.alicefox.com/comic/001/)
@@ -140,7 +140,7 @@ Updates: Rarely
 High school kids somehow find time in between getting irrationally angry and beating each other up to romance. Probably won't end well.\
 Updates: Mondays
 
-[**Bruises**](http://stupidboys.smackjeeves.com/chapters/35231/chapter-1-drunk/) (Cannot find current link)\
+[~~**Bruises**~~](http://stupidboys.smackjeeves.com/chapters/35231/chapter-1-drunk/) (Cannot find current link)\
 Skinny white (Mexican?) boy meets hockey player, they kick ass together and smash. Is it a love story? Who knows.\
 Updates: On hiatus
 
@@ -168,7 +168,7 @@ Alt Links: [Tapas](https://tapas.io/series/CasualHex/info/)
 
 [Clockmaster](https://www.the-clockmaster.com/index)\
 Two siblings find a strange guy, unconscious, with an unusual clock installed on his forehead. Little do they know, that's far from the weirdest thing about the petty criminal they just took in.\
-Updates: Thursdays (Does not appear to have been updated since 2020
+Updates: Does not appear to have been updated since 2020
 
 [Come Hell or High Water](https://www.chohwcomic.com)\
 Prince Gladimir was never meant to fall for a Pirate. Swearing off love for duty, the threat of war soon propels him back into the Captain's world of high seas and high stakes. Torn between his love for country and a completely ungovernable man, their relationship could be the very thing to save the kingdom of Yvoire - or destroy it.\
@@ -199,9 +199,10 @@ The sanitized, full-color reboot of Crushed. No longer a depressing, and at time
 Updates: Mondays\
 Alt Links: [Webtoon](https://www.webtoons.com/en/challenge/crush3d/list?title_no=82094)
 
-[Cuanta Vida](http://tf2.skyscrapersoup.com/2008/10/12/1-the-first-page/) [Author's Link](https://www.kytri.net/comics/)\
+[Cuanta Vida](http://tf2.skyscrapersoup.com/2008/10/12/1-the-first-page/)\
 TF2 fancomic, coming out of the closet, love and war.\
-Updates: The story is complete.
+Updates: The story is complete.\
+Alt Links: [Author's Link](https://www.kytri.net/comics/)
 
 [Dance with the Devil](http://littlefoolery.com/thatwhichwills.html)\
 Witch's son is invited to the Prince's ball and meets a tall, handsome stranger? They bang.\
@@ -298,7 +299,7 @@ Updates: No regular update schedule
 [Flowerpot](http://flowerpot.smackjeeves.com/)\
 Guy who grows flowers out of his head is courted by guy who used to have one growing out of his ear\
 Updates: Indefinite hiatus, but not abandoned.\
-Alt Links: [Archive.org](https://archive.org/details/smackjeeves-157021) [Webtoons](https://www.webtoons.com/en/canvas/flowerpot/list?title_no=51856) [Tapas](https://tapas.io/series/Flowerpot/info) [Tumblr](https://flowerpot-comic.tumblr.com/post/136451132675/flowerpot-title-page-read-flowerpot-on-tapastic)\
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-157021) [Webtoons](https://www.webtoons.com/en/canvas/flowerpot/list?title_no=51856) [Tapas](https://tapas.io/series/Flowerpot/info) [Tumblr](https://flowerpot-comic.tumblr.com/post/136451132675/flowerpot-title-page-read-flowerpot-on-tapastic)
 
 [~~Fluxa~~](https://tapastic.com/series/FLUXA) (Defunct link, could not replace)\
 Callipus is being chased by the police after hacking into one of the largest existing corporations. During his escape, he meets a mysterious boy who seems somewhat suspicious. After being saved by him, the two start working together.\
@@ -316,7 +317,7 @@ Updates: Once a week
 [Full Spectrum Therapy](https://tapas.io/series/fst/info)\
 A supernatural body-horror drama set in a city in the American west struggling to recuperate 30 years after an alien invasion.\
 Updates: The story is complete\
-Alt Links: [Archive.org](https://archive.org/details/smackjeeves-156285) 
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-156285)
 
 [The Gardener](http://thegardener-comic.com/archive/chapitre-1/)\
 A rich man falls in love with the manor's gardener.\
@@ -342,7 +343,7 @@ Updates: On hiatus
 A slice of life comic about gay criminals who deal in harvesting and trading human organs. NSFW due to gore rather than fucking.\
 Updates: Tuesday and Friday
 
-[Guard Dog](https://tapas.io/series/Guard-dog) (Defunct, could not find replacement link.)\
+[~~Guard Dog~~](https://tapas.io/series/Guard-dog) (Defunct, could not find replacement link.)\
 Post-Apocalyptic gays.\
 Updates: Every few days or so\
 
@@ -362,7 +363,7 @@ Updates: No regular schedule, likely abandoned.\
 Alt Links: [Archive.org](https://archive.org/details/smackjeeves-174951) [Webtoons](https://www.webtoons.com/en/canvas/happy-end/list?title_no=224271)
 
 [Hare and Bunny](https://tapas.io/series/Hare-and-Bunny)\
-Story is simple, student falls in love with other student. That's the premise\!\
+Story is simple, student falls in love with other student. That's the premise!\
 Updates: The story is complete
 
 [Hazeshift](https://www.webtoons.com/en/canvas/hazeshift/list?title_no=291573)\
@@ -516,7 +517,7 @@ Updates: Weekly
 
 [~~Mackie~~](https://tapas.io/series/Mackie/info) (Defunct, cannot find replacement link.)\
 Twink wants to kill his dad and runs to his morbid ex-boyfriend for help. Feelings may ensue? That or murder. Made by mackieanon, a brown twink who posts on /wcg/.\
-Updates: Per author, working on new project. Likely abandoned. 
+Updates: Per author, working on new project. Likely abandoned.
 
 [Magical Boy Basil](http://magicalboybasil.com/chapter-1-page-1)\
 15 year old Basil moved into a new, possibly haunted, house with his parents and brother. First night there he has a weird dream with a qt guy in it, who's literally called 'White Knight'. Weird shit starts happening and Basil totally wants to feel White Knights sword.\
@@ -663,8 +664,8 @@ Updates: Likely abandoned, no updates since 2016.
 
 [Pretty Mouth](https://prettymouth.thecomicseries.com/comics/first)\
 Monster boys fucking, angsting, probably hooking up again later.\
-Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/pretty-mouth/list?title_no=954210) [Prequel comic](https://themagpie.thecomicseries.com/comics/first)\
-Updates: The story is complete.
+Updates: The story is complete.\
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/pretty-mouth/list?title_no=954210) [Prequel comic](https://themagpie.thecomicseries.com/comics/first)
 
 [Prince of Ovale](https://tapas.io/series/Prince-of-Ovale)\
 Eriol was an Emerian god who traded his Eternal Energy to revive his fallen lover. Under the Heaven Rules, they were destined to see each other again 2000 years later. But it wasn't an easy feat, some evil forces intended to stop them. Would he finally able to find and remind his lover of their destiny before the time runs out?\
@@ -807,7 +808,7 @@ Updates: The story is complete
 Crown prince goes into magic forest to save kingdom, meets guy cursed as a squirrel, and has to solve vague riddles\
 Updates: The story is complete
 
-[**Starfighter**]([starfightercomic.com/](http://starfightercomic.com/chapter_01_page.php?page=Chapter_01_Page_01.jpg&enter=yes))\
+[**Starfighter**](https://starfightercomic.com/chapter_01_page.php?page=Chapter_01_Page_01.jpg&enter=yes)\
 It's about gay sex. IN SPAAAAAAAAACE! We don't care about the story as long as she keeps drawing porn.\
 Updates: The story is complete.
 
@@ -835,9 +836,9 @@ Updates: Updates every Friday
 
 [Sunkissed](https://tapas.io/series/sunkissed)\
 When Stephen, a quiet bookworm from Oregon, gets his admission letter from the University of Hawaii at Manoa he was anticipating some life changes. What he didn't anticipate was meeting Alex, an upbeat and easygoing local who offers to be his guide around the island. After that, it's love at first sight.\
-Updates:Once a week
+Updates: Once a week
 
-[~~The Sun Prince, The Saint, and The Changeling~~]([https://tapas.io/series/the-sun-prince](https://chamastories.tumblr.com/about))\
+[~~The Sun Prince, The Saint, and The Changeling~~](https://chamastories.tumblr.com/about)\
 Holy Roman gays.\
 Updates: Three completed volumes, abandoned as of 2020.  
 Alt Links: [Archive.org](https://archive.org/details/smackjeeves-170723)
@@ -895,7 +896,7 @@ Updates: The "story" is complete
 ~~**Together at the End**~~ (Defunct link, could not find replacement.\
 Dude 1 finds dude 2 during zombie apocalypse, then kill a rapist, and then agree to travel together.\
 Updates: Rarely  
-Alt Links: [Archive.org](https://archive.org/details/smackjeeves-139751) 
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-139751)
 
 [Torrent](https://tapas.io/series/TORRENT)\
 Kakyus most favourite pastime is teasing Noél in any which way possible. The best way to do that is feeding him unwanted information about sex.\
@@ -948,7 +949,7 @@ Updates: A few pages a week
 [What Happens in Carpediem...](https://www.webtoons.com/en/canvas/what-happens-in-carpediem/list?title_no=649778)\
 Video game romance.\
 Updates: The story is complete.  
-Alt Links: [Archive.org](https://archive.org/details/smackjeeves-109033) 
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-109033)
 
 [~~**Where Our Ledge Ends**~~](www.whole.smackjeeves.com/comics/2187854/title-page/) (Defunct, could not find replacement link.)\
 Rich nerdy white boy bags cute tanned soccer player, lots of kissing and grinding and almost buttsex\
