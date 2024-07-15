@@ -190,9 +190,10 @@ Updates: No regular schedule.
 Kyle and Tyler have a passionate hatred for one another. Their first encounter ends in a fist fight, their second one, in bed.\
 Updates: Completed!
 
-**Crushed** [Archive on the author's GDrive (English/German)](https://drive.google.com/drive/folders/1N9nm7O-2XFXTv_gOO_KvfnzjP64OUVsl?usp=sharing)\
+[**Crushed**](https://tapas.io/series/CRUSH3D/info) [Archive on the author's GDrive (English/German)](https://drive.google.com/drive/folders/1N9nm7O-2XFXTv_gOO_KvfnzjP64OUVsl?usp=sharing)\
 Carter "Crush" Howe is a gay guy and hockey star player at an all-boy's boarding school in Canada who begins to rethink his promiscuous lifestyle after he starts cheating on his long-time boyfriend.\
 Updates: The story has been rebooted, and so has the archive file.
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/crush3d/list?title_no=82094) 
 
 [Crush3d!!](https://tapas.io/series/CRUSH3D)\
 The sanitized, full-color reboot of Crushed. No longer a depressing, and at times darkly-accurate, porn comics with a plot featuring damaged teenagers. More emphasis on hockey hijinks and on the supporting cast.\
@@ -1032,35 +1033,38 @@ Bondage meets Dragonball Z\
 Updates: Monday, Wednesday, Friday  
 Alt Links: [Pixiv (Need to Login)](https://www.pixiv.net/user/36336431/series/57230) [Deviantart](https://www.deviantart.com/collarsixx) 
 
-[**Club**](http://katotochan.deviantart.com/)\
+[**Club**](https://www.deviantart.com/katotochan/gallery/51427981/club-eng)\
 Two women meet in the bathroom at a club\
-Updates: The story is complete
+Updates: The story is complete  
+Alt Links: [In Portuguese](https://yuri.live/manga/club-katotochan/) 
 
 [Cucumber Quest](http://cucumber.gigidigi.com/)\
 Bunny kids doing bunny stuff. Has a gay princess or whatever, but is mainly focussed on cutesey adventure stories.\
 Updates: Monday and Sunday
 
-[Curvy](http://www.c.urvy.org/cast.php)\
+[Curvy](https://www.c.urvy.org/?date=20080329)\
 Sci-fi adventure lesbians.\
-Updates: Friday
+Updates: Friday  
+Alt Links: [ComicRocket](https://www.comic-rocket.com/read/curvy/1)
 
-[Demon Street](demonstreet.co)\
+[Demon Street](https://www.demonstreet.co/about)\
 A bunch of kids enter in a parallel world with monsters, some of them getting supernatural powers through pacts with "locals" in the process. they're vaguely looking for their families.\
 Updates: Monday and Thursday
 
-[Dicebox](http://www.comic.dicebox.net/)\
+[Dicebox](https://www.dicebox.net/series/book-1-wander/)\
 a nomadic married couple travel the galaxy working odd jobs and talking to odd people\
-Updates: Allegedly Thursday, but it isn't always on time.
+Updates: Allegedly Thursday, but it isn't always on time.  
+Alt Links: [ComicRocket](https://www.comic-rocket.com/read/dice-box/1)
 
 [Facing the Sun](https://tapas.io/series/Facing-the-Sun)\
 Robot lesbian bodyguards.\
 Updates: No regular update schedule.
 
-[**Flipside**](http://flipside.keenspot.com/)\
+[**Flipside**](https://flipsidecomics.com/comic.php?i=1)\
 Fantasy comic about a nymphomaniac jester girl, a swordswoman, and the people who go on adventures with them. Occasional nudity, but not much sex.\
 Updates: Monday, Wednesday, and Friday
 
-[Go Get a Roomie](http://www.gogetaroomie.com/)\
+[Go Get a Roomie](https://www.gogetaroomie.com/ggar-rerun/and-so-it-begins)\
 More lesbians. I assume that it involves roomies.\
 Updates: Monday, Wednesday, and Friday
 
@@ -1072,7 +1076,7 @@ Updates: Weekly
 Typical yuri fluff, now in webcomic format: Ume is a dependable first-year who lives next door to an older recently graduated student, Saki, who can't seem to take care of herself at all.\
 Updates: No regular update schedule
 
-[**Idolon**](www.idoloncomic.com)\
+[**Idolon**](https://tapas.io/series/Idolon/info)\
 Cute innocent school girl gets corrupted by older criminal lesbians? Seems to me that's where it's going.\
 Updates: Monday and Thursdays
 
@@ -1080,35 +1084,37 @@ Updates: Monday and Thursdays
 Lady of the Shard is a comic about an acolyte in love with the goddess she serves.\
 Updates: The story is complete
 
-[Mage and Demon Queen](http://www.webtoons.com/en/challenge/mage-demon-queen/list?title_no=113737)\
+[Mage and Demon Queen](https://www.webtoons.com/en/comedy/mage-and-demon-queen/list?title_no=1438)\
 MMO-inspired fantasy land where all the adventurers hope to scale the treacherous Demon Tower and kill the demon queen at the top. But one young mage girl hopes to marry the queen instead.\
-Updates: Thrice a month
+Updates: Appears to be completed. For some reason, only 19 chapters on Webtoons, many more on Bato.io.  
+Alt Links: [Bato.to](https://bato.to/series/148408)6
 
-[Monster Pop](http://monsterpop.mayakern.com/)\
+[Monster Pop](https://tapas.io/series/MonsterPop/info)\
 World where monsters and humans coexist, but there are big divides between the two. Main character is a gay cyclops. It is also very tumblr centric, so be warned.\
 Updates: Tuesday, Wednesday, and Thursday
 
-[My Impossible Soulmate](https://mis.thecomicseries.com/)\
+[My Impossible Soulmate](https://mis.thecomicseries.com/comics/first/#content-start)\
 A daydreaming Otaku longs to confess her crush to her best friend. Which gets particularly difficult once she's sent to another world.\
 Updates: Monday, Wednesday, Friday
 
-[Obelisk](http://www.obeliskcomic.com/)\
+[Obelisk](http://obeliskcomic.com/comic/page-01)\
 Evelyn Reuter and her inheritance of her father's business, and all of his secrets along with it. Eve begins to hunt for answers - and finds Margot, the eccentric owner of a curious shop who may not be entirely human (read vampire). Also, it's set in the early 1900s.\
 Updates: Wednesday
 
-[Octopus Pie](http://www.octopuspie.com/about/)\
+[Octopus Pie](http://www.octopuspie.com/comic/001-pea-wiggle//)\
 Lesbians in Brooklyn, I guess?\
 Updates: The story is complete.
 
-[**The Private Report on My Lesbian Experience with Loneliness**](http://bato.to/comic/_/comics/the-private-report-on-my-lesbian-experience-with-loneliness-r19652)\
+[**The Private Report on My Lesbian Experience with Loneliness**](https://bato.to/title/61880)\
 28 year old girl with an oedipus complex decides to lose her virginity to a 30-y/o prostitute. Ten years of depression\!\
 Updates: Ever few weeks, but you have to make an account to read
+Alt Links: [Archive.org (Book format, borrowable)](https://archive.org/details/mylesbianexperie0000naga/mode/2up) [Mangadex](https://mangadex.org/title/4d84cc9c-0f88-45d0-8700-d364d8ddbca9/my-lesbian-experience-with-loneliness)
 
 [Relativity](http://relativitycomic.com/)\
 An old lesbian married couple, one goes into space for 6 months, due to relativity (her ship travels near speed of light) 3 years passes on earth. But shit happened during astronaut's absence.\
 Updates: Currently on hiatus
 
-[Sapphixation](http://www.sapphixation.com/)\
+[Sapphixation](https://www.sapphixation.com/post/112384414809)\
 Lesbian superheroes.\
 Updates: When she gets around to it.
 
@@ -1120,29 +1126,33 @@ Updates: The story is complete
 Mild sci-fi, mildly erotic character-based adventures underwater\
 Updates: Two or three times a week.
 
-[Star Trip](http://www.startripcomic.com/index.php)\
+[Star Trip](https://www.startripcomic.com/comic/chapter-1-cover)\
 A woman named Jas who helps an alien named Khut (who is also a starship) escape bounty hunters, as they tour the galaxy.\
 Updates: No regular update schedule\
 
-[Starward Lovers](http://starwardlovers.tumblr.com/)\
+[Starward Lovers](https://starwardlovers.tumblr.com/post/150428780692)\
 To get closer to her mysterious crush, a girl joins her crush's league of alien-fighting undercover agents.\
 Updates: No regular update schedule
 
 [**Sunstone**](http://shiniez.deviantart.com/)\
 Two women meet on an s/m forum and decide to meet in person.\
-Updates: No regular update schedule.
+Updates: No regular update schedule.  
+Alt Links: [ReadComics.me](https://readcomic.me/comic/sunstone/issue-tpb-1/all) [Archive.org (Book format, borrowable)](https://4get.ca/web?s=sunstone+comic) [Paid Links
+](https://imagecomics.com/comics/list/series/sunstone/collected-editions)  
 
-[Tiger, Tiger](tigertigercomic.com)\
+[Tiger, Tiger](https://www.tigertigercomic.com/tiger-tiger/001)\
 Tiger is a story of a young noble lady, who steals her brother's identity and his ship to sail across the world to find love and adventure, and to write a book about her favourite subject: the fascinating life cycle of sea sponges! Contains occasional nudity.\
 Updates: Monday, Wednesday, Friday
 
-[A Woman of Dust](http://awomanofdust.smackjeeves.com/)\
+[A Woman of Dust](\https://tapas.io/series/A-Woman-of-Dust/info)\
 Two female god-like creatures who live forever. One traveler type meets a guardian type and things go from there.\
-Updates: The story is complete.
+Updates: The story is complete.  
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-144544) [Deviantart](https://www.deviantart.com/drmistytang/gallery/47162252/a-woman-of-dust)
 
-[YU+ME](http://rosalarian.com/yume/)\
+[YU+ME](https://www.webtoons.com/en/canvas/yume-dream/list?title_no=438374)\
 Surreal lesbian romance story.\
-Updates: The story is complete
+Updates: The story is complete.  
+Alt Links: [Archive.org](https://archive.org/details/yu-me-dream) [Goodreads](https://www.goodreads.com/author/show/2948188.Megan_Rose_Gedris) 
 
 ### Trans Tier
 
