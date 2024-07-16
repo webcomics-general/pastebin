@@ -4,7 +4,7 @@ Official /wcg/ Y Gallery account:\
 Username: legbutt\
 Password: legbuttlewd
 
-[Avialae](http://avialae.smackjeeves.com/)\
+[Avialae](https://yaoi.biz/avialae/chapter-1/page-0/)
 Chapter 2 Page 52-57\
 Chapter 3 Page 76-98\
 Chapter 4 Page 3-8, 94-110\
