@@ -1156,7 +1156,7 @@ Alt Links: [Archive.org](https://archive.org/details/yu-me-dream) [Goodreads](ht
 
 ### Trans Tier
 
-[Becoming Me](http://bmcomic.tumblr.com)\
+[Becoming Me](https://bmcomic.tumblr.com/page/84)\
 A comic about Mia, a trans girl in her twenties, who fresh out of college and finally in hormone therapy, is slowly exploring her new life\
 Updates: Tuesdays and Thursdays
 
@@ -1168,13 +1168,14 @@ Updates: Tuesdays (Usually)
 Here's the gist of it. Dallas Margolin is trans, jewish, depressed & friendless in Oregon. Then he meets Poppy Rajkhowa & Malek Solh, who become his best friends. Dallas develops feelings for Malek.( And it looked like Malek was reciprocating). But then Malek goes missing.\
 Updates: Monthly
 
-[**Feast for a King**](http://ffak.kosmicdream.com/)\
+[**Feast for a King**](https://feastforaking.com/comic/chapter-one/)\
 FFAK is a sci-fi action dark comedy horror erotica.  The story is really nonlinear and jumps around the timeline a lot, some parts ask for re-reading later with new context. Shapeshifting aliens, gay cyborgs, voracious space ships, sex-surgeries, gore, self-cannibalism and true love  can be found on thousands pages of the comic.
-Updates: No regular update schedule, but usually every couple of weeks
+Updates: On hiatus.\ 
+Alt Links: [Paid version](https://kosmic.itch.io/feast-for-a-king-chapter-14)
 
-[Goodbye to Halos](http://www.goodbyetohalos.com/)\
+[Goodbye to Halos](https://www.goodbyetohalos.com/comic/prologue-1)\
 After being abandoned my her father at a young age, a gay trans girl makes lots of gay trans friends and goes on a magical adventure.\
-Updates: Tuesday and Friday
+Updates: On hiatus as of 2021.
 
 [Immortal Nerd](http://www.webtoons.com/en/comedy/immortal-nerd/list?title_no=579)\
 A genderqueer NEET who grew up on a space station gets their immortality and spends it watching cat videos from the old internet 24/7 without eating, sleeping, or dying. Their parents didn't put up with that shit for long, so now they're on earth getting a degree in memes.\
@@ -1182,55 +1183,62 @@ Updates:Tuesdays
 
 [Is It Summer Yet](https://mentalcrash.deviantart.com/gallery/45551971/Is-It-Summer-Yet)\
 A boy slowly turning into a girl while his roommate slowly falls in love with him.\
-Updates: Rarely
+Updates: Rarely. Not updated since 2020.\
+Alt Links: [NewGrounds](https://www.newgrounds.com/art/view/mentalcrash/is-it-summer-yet-cover) [Weasyl](https://www.weasyl.com/~mentalcrash/submissions/1576894/is-it-summer-yet-cover)
 
-[Knights-Errant](http://sparklermonthly.com/series/knights-errant/)\
+[Knights-Errant](https://theyoungdoyler.com/comic/chapter-1-page-1)\
 A bisexual female knight disguising herself as a man meets a transmale knight.\
-Updates: No regular update schedule
+Updates: M W F, supposedly. Not updated since 2023.
 
-[Magical Boy](https://tapas.io/series/magicalboy)\
+[Magical Boy](https://tapas.io/series/magicalboy/info)\
 Not to be confused with Magical Boy Basil. Sixteen-year-old gay trans boy desperately attempts to lead a normal boy's life at his school in Chicago, but is actually the incumbent goddess in a line of descendants of the light goddess, and must fight the forces of evil making their way into our world. This would be hard enough if fighting on behalf of the goddess didn't cause him to transform into an over-the-top over-feminized avatar of her, to his horror.\
 Updates: Monthly
 
-[Man Time!](https://tapas.io/series/mantime)\
+[Man Time!](https://mantimecomic.tumblr.com/tagged/ftm/chrono)\
 FtM focused gag-a-day except it's "month" instead of "day" and "#relatable" instead of "gag".\
-Updates: Several times per year.
+Updates: Several times per year.\
+Alt Links: [Paid link](https://www.indyplanet.com/man-time-1)
 
 [Neokosmos](http://www.neo-kosmos.com/)\
 A sci-fi adventure webcomic about kids in space. Also they're genderqueer or something, I guess?\
-Updates: No regular update schedule
+Updates: Original webcomic abandoned. Now being adapted into illustrated novels!\
+Alt Links: [Archive.org](https://web.archive.org/web/20191218032038/http://www.neo-kosmos.com/page/1)
 
-[The Princess](http://the-princess.funonthe.net/index.php)\
+[The Princess](https://theprincess.funonthe.net/comics/2/)\
 The story of a transgirl in elementary school.\
 Updates: Mondays and Fridays
+Notes: Pg. 1 of the comic re-directs to a malware site. [1st page image.](https://theprincess.funonthe.net/image.php?type=com&i=/1/1.jpg)
 
-[Queermo](http://qmjourney.tumblr.com/)\
+[Queermo](https://qmjourney.tumblr.com/page/68)\
 An autobiographical FTM comic that's actually pretty funny.\
 Updates: Wednesday
 
-[Rain](https://rain.thecomicseries.com/)\
+[Rain](https://rain.thecomicseries.com/comics/first/#content-start)\
 Slice of life comic about a high school trans girl named Rain and her adventures with her friends, who are also mostly queer. While melancholic and dark at times, it's overall pretty wholesome and heartwarming.\
 Updates: No more, completed :(
 
 [Sweethearts of 1989](https://kalematsuba.itch.io/1989nk1)\
 Just a cute romance comic. Also has a super cute mtf character.\
-Updates: No regular
+Updates: Complete, first volume free downlad.  
+Alt Links: [Print copies + merch](https://1989nk.com/)
 
-[Trans Girl Next Door](http://www.transgirlnextdoor.com/)\
+[Trans Girl Next Door](https://www.transgirlnextdoor.com/archive)\
 Journal comic from a trans girl.\
 Updates: No regular update schedule
 
-[Validation](http://www.validationcomic.com)\
+[Validation](https://www.webtoons.com/en/canvas/validation/list?title_no=824323)\
 A transgirl slice of life comic.\
-Updates: Monday and Thursday
+Updates: Monday and Thursday\
+Alt Links: [Instagram](https://www.instagram.com/validationcomic/)
 
 [What's Normal Anyway?](http://whatsnormalanyway.net/)\
 The story of an transmale.\
 Updates: The story is complete, according to some asshole in the thread.
 
-[With Great Abandon](http://www.webtoons.com/en/challenge/with-great-abandon/list?title_no=55067)\
+[With Great Abandon](https://tapas.io/series/withgreatabandon/info)\
 Harry is a gay trans man, Russell is gay cis man, and With Great Abandon is a queer romance set over the course of a year in London. It's the story of their differences, their similarities, and their relationship. A hopeful and kind story. Also food and comics.\
-Updates: Frequently
+Updates: Frequently\
+Alt Links: [Webtoons](http://www.webtoons.com/en/challenge/with-great-abandon/list?title_no=55067)
 
 ### Asexual Tier
 
