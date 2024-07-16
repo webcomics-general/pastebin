@@ -1242,17 +1242,17 @@ Alt Links: [Webtoons](http://www.webtoons.com/en/challenge/with-great-abandon/li
 
 ### Asexual Tier
 
-[Ignition Zero](http://ignitionzero.com/comics/1)\
+[Ignition Zero](https://ignitionzero.thecomicseries.com/comics/1/)\
 Two asexual guys falling in love.\
 Updates: The story is complete
 
-[Shades of A](http://www.discordcomics.com/)\
+[Shades of A](https://www.discordcomics.com/comic/shades-cover/)\
 Some assexual guy and his kinky friends.\
 Updates: The story is complete
 
-[Supernormal Step](http://www.supernormalstep.com)\
+[Supernormal Step](https://www.supernormalstep.com/archives/8)\
 Ace saves the world with magic\
-Updates: Allegedly weekly
+Updates: The Story is complete
 
 ### Bisexual Tier
 
