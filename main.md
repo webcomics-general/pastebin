@@ -65,6 +65,12 @@ Updates: Tuesdays
 Two apathetic guys falls in love with each other.\
 Updates: Weekly
 
+[**Arco**](https://tapas.io/series/ARCO/info)\
+## http://arco.smackjeeves.com/comics/2158905/prologue-page-1/\
+A guy who's obsessed with marine biology in his dream program, but he gets a roommate who knows nothing about marine biology and doesn't want to be there.\
+Updates: The story is complete.\
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/arco/list?title_no=251870) [Archive.org](https://web.archive.org/web/20201227160008/https://www.smackjeeves.com/discover/articleList?titleNo=155008)
+
 [Artifice](http://webcomics.yaoi911.com/)\
 Android designed to kill people falls for a guy.\
 Updates: The story is complete.
@@ -1447,11 +1453,12 @@ Updates: It updated once, and then never again.
 
 Comics that were abandoned by their creator, often without a conclusion. Press F to pay your respects.
 
-[+1](http://plus-one.smackjeeves.com/)\
+[+1](https://plus-one.thecomicseries.com/comics/first/)\
 Slice of life highschool comic. The artist does not know how to draw a penis.\
-Defunct. Formerly Other Comics tier.
+Defunct. Formerly Other Comics tier.\
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-138913)
 
-[**24 Hours**](http://24hourscomic.smackjeeves.com/)\
+[~~**24 Hours**~~](http://24hourscomic.smackjeeves.com/) (Could not find current link)\
 Basically about an 18 year old gay highschooler self destructing. May or may not be a Starfighter ripoff.\
 Defunct. Formerly Other Comics Tier, website died
 
@@ -1463,25 +1470,23 @@ Formerly other comics tier, has not updated since 2017
 People who hunt demons and a girl named April goes to an academy to learn to exorcise demons and her roommate is a hybrid.\
 Updates: Formerly Tangentially Gay Tier, abandoned in 2018 and Author vanished into the great beyond.
 
-[**Arco**](http://arco.smackjeeves.com/comics/2158905/prologue-page-1/)\
-A guy who's obsessed with marine biology in his dream program, but he gets a roommate who knows nothing about marine biology and doesn't want to be there.\
-Updates: Defunct like the rest of smackjeeves
-
-[An Online Thing](https://tapas.io/series/An-ONLINE-Thing)\
+[An Online Thing](https://web.archive.org/web/20230520084557/https://tapas.io/episode/1088453)\
 Gay boy's best friend finds his dating profile.\
-Updates: Abandoned
+Updates: Abandoned\
+Alt Links: [In Spanish](https://visortmo.com/library/oel/41160/an-online-thing) [In Russian](https://mangamammy.ru/manga/onlajn-znakomstvo/)
 
 [Assault Affair](https://tapas.io/series/Assault-Affair)\
 Military gays\
-Updates: Abandoned, hasn't updated since March 2019
+Updates: Abandoned, hasn't updated since March 2019\
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/assault-affair/list?title_no=123460)
 
-[Best Friends Forever](http://bffcomic.com/)\
+[Best Friends Forever](https://web.archive.org/web/20230709141901/http://www.bffcomic.com/)\
 Muscly student and his tiny billionaire friend have a bromance with unwarranted amounts of sexual tension.\
-Formerly Serious Business Tier, ended with no conclusion
+Formerly Serious Business Tier, abandoned with text outlines of the rest of the chapters.
 
 [~~Broadside~~](http://broadsidecomic.com/)\
 A runaway girl stows away on a pirate ship and meets a lot of beefy lesbians.\
-Updates: Formerly Lesbian Tier; discontinued, 1:1-6:24 avaialable through Archive.org.  
+Updates: Formerly Lesbian Tier; discontinued, Chapters 1:1-6:24 avaialable through Archive.org.  
 Alt Links: [Archive.org](https://web.archive.org/web/20210727043728/https://broadsidecomic.com/comic/1-00/)
 
 [**Buying Time**](http://buyingtime.the-comic.org/about/)\
