@@ -1256,44 +1256,47 @@ Updates: The Story is complete
 
 ### Bisexual Tier
 
-[Bad,Bad Things](http://www.badbadthingscomic.com)\
+[Bad,Bad Things](https://tapas.io/series/BadBadThings/info)\
 A bunch of gay and/or trans roommates in some kind of fantasy scifi dystopia experience both extreme angst and lighthearted drama\
-Updates: Mondays, with occasional Friday updates
+Updates: Mondays, with occasional Friday updates  
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-148265)
 
-[**Bruno**](http://brunostrip.com/)\
+[**Bruno**](http://brunostrip.com/wp/?p=51)\
 An introspective young college dropout woman set in the real world.\
 Updates: The story is complete
 
-[**Chester 5000 XYV**](http://jessfink.com/Chester5000XYV/)\
+[**Chester 5000 XYV**](http://jessfink.com/Chester5000XYV/?p=34)\
 A wordless erotic sci-fi Victorian romance.\
 Updates: The story is complete.
 
-[Dumbing of Age](http://www.dumbingofage.com/)\
+[Dumbing of Age](https://www.dumbingofage.com/2010/comic/book-1/01-move-in-day/home/)\
 Slice of life college story.\
 Updates: Daily
 
-[Egs](http://www.egscomics.com/)\
+[Egs](https://www.egscomics.com/comic/2002-01-21)\
 A comic about a boy, a squirrel girl, a boy that can transform Ranma style, a girl that was born from him getting magicked while transformed, and a shitload of other characters, a large portion of whom are LGBT.\
 Updates: Monday, Wednesday, Friday
 
-[Find Chaos](http://www.findchaos.com/)\
+[Find Chaos](https://www.findchaos.com/comic/sotfcover)\
 Features a bunch of lgbt characters with crazy paranormal powers. Good character development, good story line, good art.\
-Updates: Weekly
+Updates: Weekly, has not been updated since 2022.
 
-[Khaos Komix](http://www.khaoskomix.com/)\
-The story of four couples, covering Ls, Gs, and Ts.\
-Updates: The story is complete
+[Khaos Komix](https://www.discordcomics.com/comic/chapter1cover/)\
+The story of four couples, covering Ls, Gs, and Ts. Each chapter is a character's story with extras.\
+Updates: The story is complete. 
 
-[Lovelyss](http://lovelyss.com/)\
+[Lovelyss](https://web.archive.org/web/20160622230715/http://lovelyss.com/)\
 A sexy outer-space nightclub pulp adventure\
-[Prequel](http://www.lovesyck.com/comics/lovesyck/)\
 Updates: The story is complete.
+[Prequel (Not complete)](https://web.archive.org/web/20200216072937/http://www.lovesyck.com/comics/lovesyck/)\
+Updates: Incomplete in free/archived versions, complete in paid version.
+Alt Links: [E-Hentai](https://e-hentai.org/s/3755e8f8dc/936555-1) [Paid Links](https://alexisflower.itch.io/lovelyss)
 
-[Questionable Content](http://questionablecontent.net/)\
+[Questionable Content](https://questionablecontent.net/view.php?comic=1)\
 The daily lives of a bunch of random people. Contains a lesbian, a bisexual girl, and an MtF transgender person.\
 Updates: Monday through Friday
 
-[**Unknown Lands**](https://tapastic.com/episode/87803)\
+[**Unknown Lands**](https://tapas.io/series/Unknown-Lands/info)\
 High fantasy adventure??\
 Updates: When they get around to it.
 
@@ -1301,55 +1304,46 @@ Updates: When they get around to it.
 
 Comics that aren't focussed on gay stuff, but have gay things included.
 
-[Age of Gray](http://ageofthegray.smackjeeves.com/)\
+[Age of Gray](https://ageofthegray.thecomicseries.com/comics/first/)\
 Heaven and hell has fallen/risen to earth and humans merge with angels to fight demon baddies.\
-Updates: Wednesday, Friday, Sunday
+Updates: Wednesday, Friday, Sunday\
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-132378)
 
-[Angels in the Field](https://www.webtoons.com/en/challenge/the-angel-in-the-forest/list?title_no=230887)\
+[The Angel in the Forest](https://www.webtoons.com/en/challenge/the-angel-in-the-forest/list?title_no=230887)\
 A story about a rat and a mouse who find companionship in raising a child\
-Updates: Tuesdays, but biweekly
+Updates: Tuesdays, but biweekly\
+Alt Links: [SommonerSky](https://summonersky.com/monster/dark-giant-warrior?utm_source=google&utm_medium=organic)
 
-[April Flowers](https://www.webtoons.com/en/fantasy/april-flowers/list?title_no=1363)\
-People who hunt demons and a girl named April goes to an academy to learn to exorcise demons and her roommate is a hybrid.\
-Updates: Weekly
-
-[Blaster Nation](http://www.blasternation.com/)\
+[Blaster Nation](http://blasternation.com/comic/1-one-day-in-the-life-of-matthew-palmer)\
 The lives of five eccentric individuals. Not completely about gays, but has gay characters.\
 Updates: The story is complete
 
 [Dead City](http://topazcomics.com/deadcity/welcome/)\
 Yet another zombie apocalypse webcomic.\
-Updates: Tuesdays
+Updates: The story is complete
 
-[Demon Street](http://demonstreet.co/)\
-A boy goes through an entrance to a dangerous magical world, running from deadly creatures and allying with other children who've made pacts to gain magical powers. Features a budding lesbian relationship and a nonbinary character.\
-Updates:Monday and Thursday
-
-[Electric Bones](https://electricbonescomic.com/)\
+[Electric Bones](https://electricbonescomic.com/index.php/comic/page-001/)\
 From the team that brought you Always Raining Here, it's a space comic that isn't gay.\
 Updates: Weekly
 
-[Eth's Skin](http://www.eths-skin.com/)\
-Fisher named eth accidentally grabs a selkie's skin, and is unable to let go of it to return it. features a nonbinary main character and a mermaid with two girlfriends.\
-Updates: Wednesdays
-
-[Girls with Slingshots](http://www.girlswithslingshots.com/)\
+[Girls with Slingshots](https://www.girlswithslingshots.com/comic/gws1)\
 Follows several friends as they deal with life events like unemployment, marriage, and their sexuality. Jamie is probably bi, Thea and Mimi are lesbian, Erin is Jamie's girlfriend (sometimes?), Darren is gay, rest are kinda normal.\
 Updates: The story is complete
 
-[Green and Gold](https://tapastic.com/episode/445043)\
+[Green and Gold](https://tapas.io/series/GreenGold/info)\
 Story about adolescents at a german boarding school.\
-Updates: No regular update schedule.
+Updates: Every second Tuesday.\
+Alt Links: [Spin-Off Sequel](https://tapas.io/series/WHITE-NOISE5/info)
 
-[Gunnerkrigg Court](http://www.gunnerkrigg.com/)\
+[Gunnerkrigg Court](https://www.gunnerkrigg.com/?p=1)\
 A school where weird things happens. The art improves after the first few chapters, just bear with it for awhile.\
 Updates: Monday, Wednesday, and Friday
 
-[Heroic](https://tapas.io/series/Heroic)\
+[Heroic](https://tapas.io/series/Heroic/info)\
 In a world in which heroes and villains are real, Micky has to deal with the collateral damage every day. His life as a nurse is hard enough, even with his normal patients. But now he also has to treat victims of failed rescue missions or defective death rays.\
 Updates: Twice a week (Allegedly)
 
-[Humor Me](https://tapas.io/series/Humor-me)\
+[Humor Me](https://tapas.io/series/Humor-me/info)\
 Highschool life.\
 Updates: Fridays
 
@@ -1361,7 +1355,7 @@ Updates: The story is complete.
 Starbucks barista conquers the universe via furious dumbassery.\
 Updates: Tuesdays and Fridays
 
-[Lies Within](http://lieswithincomic.com/)\
+[Lies Within](https://www.lieswithincomic.com/comic/page-0)\
 Lies Within follows the story of Lysander Farrokh, a 28-year old freeloader whose life changes drastically after getting possessed by a wendigo spirit. With the help of his best friend and neighbor, Simon Isadore, Lysander learns to navigate this tumultuous world of supernatural beings and the war they're fighting against a growing vampire threat.\
 Updates:Fridays
 
@@ -1465,6 +1459,10 @@ Defunct. Formerly Other Comics Tier, website died
 Soul collector doesn't kill his target and asks him out instead.\
 Formerly other comics tier, has not updated since 2017
 
+[April Flowers](https://www.webtoons.com/en/fantasy/april-flowers/list?title_no=1363)\
+People who hunt demons and a girl named April goes to an academy to learn to exorcise demons and her roommate is a hybrid.\
+Updates: Formerly Tangentially Gay Tier, abandoned in 2018 and Author vanished into the great beyond.
+
 [**Arco**](http://arco.smackjeeves.com/comics/2158905/prologue-page-1/)\
 A guy who's obsessed with marine biology in his dream program, but he gets a roommate who knows nothing about marine biology and doesn't want to be there.\
 Updates: Defunct like the rest of smackjeeves
@@ -1517,6 +1515,10 @@ Formerly Other Comics Tier, ended with no conclusion
 [**Enthrall**](enthrall.smackjeeves.com/)\
 Vampires and shit.\
 Defunct. Formerly Other Comics Tier, ended with no conclusion
+
+[Eth's Skin](https://www.eths-skin.com/post/71812472945)\
+Fisher named eth accidentally grabs a selkie's skin, and is unable to let go of it to return it. features a nonbinary main character and a mermaid with two girlfriends.\
+Updates: Formerly Tangentally Gay Tier, on hiatus since 2017.
 
 [Fruitloop & Mr Downbeat](http://fruitbeat.smackjeeves.com/)\
 Moot's Gay Adventures.\
