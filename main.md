@@ -154,6 +154,11 @@ Updates: On hiatus
 Aspiring musician and delinquent-in-reform, Danny Strife, meets TA and goody-two-shoes, Alden Taylor, at community college. The two strike up a friendship and Danny starts to educate Alden about his favorite subject - music - and Alden shows Danny a potential future at an amazing music school. As time goes on, however, their feelings for each other grow beyond friendship... and definitely beyond student and TA...\
 Updates: Wednesdays
 
+[**Buying Time**](https://web.archive.org/web/20201108090203/http://buyingtime.the-comic.org/comics/1/)\
+A cyberpunk romance\
+Updates: The story is complete.\
+Alt Links: [Author's Site (Needs flash)](http://buyingtime.the-comic.org/about/)
+
 [Cans of Beans](http://www.cansofbeans.com/)\
 Werewolf sophomore meets broish surfer senior. Friendship ensues.\
 Updates: The story is complete
@@ -341,6 +346,11 @@ Updates: No regular update schedule
 [The God in the Field](https://tapastic.com/episode/330231)\
 The story of Hades and Persephone, but shotacon.\
 Updates: No regular update schedule.
+[
+Golden Camellia](https://tapas.io/series/Golden-Camellia/info)\
+Poor gay boy gets seduced by twink with dubious intentions.\
+Updates: Eventually\
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/golden-camellia/list?title_no=81223)
 
 [~~Go to Church~~](http://gotochurch.smackjeeves.com/) (Defunct, could not find replacement link.)\
 Mason is in love with his mother's boyfriend. That motherfucker needs Jesus.\
@@ -1489,15 +1499,11 @@ A runaway girl stows away on a pirate ship and meets a lot of beefy lesbians.\
 Updates: Formerly Lesbian Tier; discontinued, Chapters 1:1-6:24 avaialable through Archive.org.  
 Alt Links: [Archive.org](https://web.archive.org/web/20210727043728/https://broadsidecomic.com/comic/1-00/)
 
-[**Buying Time**](http://buyingtime.the-comic.org/about/)\
-A cyberpunk romance\
-The comic relied on the Flash plug-in and therefore is practically defunct.
-
-[Camellia](https://tapas.io/series/Camellia)\
+[Camellia](https://web.archive.org/web/20230327200354/https://tapas.io/series/Camellia)\
 Ancient Chinese gays.\
-Updates: Last updated on April 2018.
+Updates: Last updated on April 2018. Appears to be rebooted as Golden Camellia (See Gay Tier)
 
-[Copper Queen](http://copperqueen.thecomicseries.com/)\
+[Copper Queen](https://copperqueen.thecomicseries.com/comics/first)\
 Young woman is forced into servitude at the royal castle, and attracts the attention of the vain queen.\
 Formerly Lesbian tier, ended with no conclusion
 
@@ -1611,35 +1617,39 @@ Updates: The story is complete.
 
 ### Shit Tier
 
-[Before Juliet](http://beforejuliet.smackjeeves.com/)\
+[Before Juliet](https://web.archive.org/web/20201227121554/https://www.smackjeeves.com/discover/articleList?titleNo=134789)\
 Adam is a highly awarded actor who started a new project 'Before Juliet' starring as Mercutio. There he meets Julien - aka Romeo - and they hit it off right away. However, Adam gets the feeling that Julien wants to be more than friends and now has to find a way how to deal with this new found information...\
-Updates: The Story is complete.
+Updates: The Story is complete, and rebooted.\
+Alt Links: [Rebooted Version](https://tapas.io/series/Before-Juliet/info) [Sequel](https://tapas.io/series/Trial-and-Error-Sequel-to-Before-Juliet/info)
 
-[**Gaysome**](gaysomecomic.tumblr.com/)\
-"It's a gag a day but I'm not laughing." - Anon (It stopped updating.)
-Updates: hahahaahaha
+[**Gaysome**](https://www.tumblr.com/gaysomecomic/tagged/comic)\
+"It's a gag a day but I'm not laughing." - Anon (It stopped updating.)\
+Updates: Abandoned since 2013.
 
-[**Kaito Shuno**](http://seafoamdiary.com/)\
+[**Kaito Shuno**](https://tapas.io/episode/622459)\
 The man, the myth, the legend. Manga-ish comic with incredibly awful writing. The writer has most likely never actually met a gay person. I wouldn't be surprised if she never met any people in the first place.\
 Updates: Saturday.\
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-100498) [Rebooted version?](https://www.deviantart.com/angelyeah/art/Seafoam-Diary-Ch1-Page-1-561437819)
 
-[Loki](http://loki.smackjeeves.com/)\
+[Loki](https://web.archive.org/web/20201227054338/https://www.smackjeeves.com/discover/articleList?titleNo=93990)\
 A hired thug and a federal marshal in a world that has modern tech, but for some reason is still the old West.\
-Updates: The story is complete
+Updates: The story is complete\
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-142644)
 
-[**Moon Over June**](https://www.moonoverjune.slipshine.net/)\
+[**Moon Over June**](https://moj.slipshine.net/comic/0001)\
 If you like this you're past the point of no return.\
 Updates: Why do you even want to know?
 
-[Neon Glow](http://neonglow.smackjeeves.com/)\
+[Neon Glow](https://web.archive.org/web/20201228171621/https://www.smackjeeves.com/discover/articleList?titleNo=63747)\
 It's like pokemon with glowing cats and fujoshit humor.\
-Updates: Weekly
+Updates: Mondays and Fridays\
+Alt Links: [Tapas](https://tapas.io/series/Neon-Glow/info) [Webtoons](https://www.webtoons.com/en/canvas/neon-glow/list?title_no=54727)
 
 [Under Satyr's Orders](https://tapas.io/series/Under-Satyrs-Orders)\
 An asexual falls in love with a sex addict.\
 Updates: Weekly
 
-[**Y-Force**](http://www.yforcecomic.com/)\
+[**Y-Force**](https://yforce.wixsite.com/yforce-comics/pro1)\
 Superhero team with gays.\
 Updates: Sundays
 
@@ -1649,23 +1659,26 @@ Updates: Saturday, and usually on Wednesday as well if enough people donate to t
 
 [<3 Art](http://www.mangamagazine.net/manga-and-comics/3-Art./detail-page/3927?lang=en)\
 Another comic from the creator of Kaito Shuno. It's about an artist in France and a guy said artist thinks is a girl.\
-Updates: Sunday, but you have to make an account to read beyond chapter 2, so fuck that.
+Updates: Appears abandoned.\
+Alt Links: [Tapas](https://tapas.io/series/LoveART/info)
 
 ### What The Fuck Is This? Tier
 
-[A Broken Winter](http://www.abrokenwinter.com/graphic.html)\
+[A Broken Winter](https://www.abrokenwinter.com/comic/comic.html)\
 Babby's first holocaust in comic form.\
-Updates: No regular update schedule.
+Updates: No regular update schedule.\
+Alt Links: [Archive.org](https://web.archive.org/web/20140408131042/https://www.abrokenwinter.com/graphic.html)
 
 [Courage](http://courage.smackjeeves.com/comics/)\
 Courage the Cowardly Dog reimagined as a boy's love comic. Seriously.\
-Updates: Why does this even exist?
+Updates: Why does this even exist?\
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-80552)
 
-[Kahbookoodoh](http://kahbookoodoh.tumblr.com/)\
+[Kahbookoodoh](https://kahbookoodoh.tumblr.com/tagged/b/chrono)\
 I don't know what this fucking comic is about, and I don't care.\
 Updates: Nope
 
-[Pika-seme-chu](http://pikasemechu.smackjeeves.com/comics/165598/cover/)\
+[Pika-seme-chu](https://web.archive.org/web/20161005151026/http://pikasemechu.smackjeeves.com/comics/165598/cover/)\
 Pokemon reimagined as a boys love comic. Why do people make these things?\
 Updates: When you have a stiff drink nearby.
 
@@ -1673,6 +1686,7 @@ Updates: When you have a stiff drink nearby.
 Gay vampires with ridiculous amounts of fucking.\
 Updates: No regular schedule
 
-[**Worlds Apart**](http://worldsapartcomic.smackjeeves.com/)\
+[~~**Worlds Apart**~~](https://worldsapart1.thecomicseries.com/comics/1/#content-start)\
 Terrible human beings being unlikeable. Also, drug users and supernatural powers, or something?\
-Updates: Perpetual hiatus
+Updates: Part 1 complete, Part 2 on hiatus.\
+Alt Links: [Part 1 (Tapas)](https://tapas.io/series/Worlds-Apart-Part-One/info) [Part 2 (ComicFury)](https://worldsapart2.thecomicseries.com/comics/1/#content-start) [Part 2 (Tapas)](https://tapas.io/series/Worlds-Apart-Part-Two/info) [Halloween Special](https://tapas.io/series/Worlds-Apart-Halloween-2021/info) [Archive.org (Pt. 1)](https://archive.org/details/smackjeeves-142632) [Archive.org (Pt. 2)](https://archive.org/details/smackjeeves-191363)
