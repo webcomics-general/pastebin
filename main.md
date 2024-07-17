@@ -1363,19 +1363,21 @@ Updates:Fridays
 About a mermaid living in a polluted ocean. Features gay side characters.\
 Updates: Every other Friday.
 
-[Miles of Painted Darkness](https://tapas.io/series/Miles-of-Painted-Darkness)\
+[Miles of Painted Darkness](https://www.vvbgcomics.com/miles-of-painted-darkness/miles-of-painted-darkness-1/)\
 Cthulhu mythos, but shotacon.\
-Updates: No regular update schedule
+Updates: Discontinued per author.\
+Alt Links: [Tapas](https://tapas.io/series/Miles-of-Painted-Darkness/info) [Webtoons](https://www.webtoons.com/en/canvas/miles-of-painted-darkness/list?title_no=99942)
 
-[Minor Acts of Heroism](http://www.minoractsofheroism.com/comics/1012948/m-a-o-h-issue-01-cover/)\
+[Minor Acts of Heroism](https://web.archive.org/web/20180504183620/http://www.minoractsofheroism.com/comics/1012948/m-a-o-h-issue-01-cover/)\
 A bunch of super kids and their parents.\
-Updates: Weekly
+Updates: Weekly\
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-78356) 
 
-[Monsterkink](http://monsterkind.enenkay.com/)\
+[Monsterkink](http://monsterkind.enenkay.com/comic/1)\
 A story about humans and monsters living in a country ruled by segregation and inequality." Main character is a social worker just trying to do his job without getting fired.\
-Updates: Tuesday and Friday
+Updates: Tuesday and Friday. Has not updated since 2022
 
-[Namesake](http://namesakecomic.com/)\
+[Namesake](https://www.namesakecomic.com/comic/the-journey-begins)\
 A story of fairy tales, ghost, and a magical lesbian couple on the side.\
 Updates: Tuesday, Thursday, Saturday
 
@@ -1383,47 +1385,45 @@ Updates: Tuesday, Thursday, Saturday
 Funny comic that almost always involves some sort of sex. Warning: Often contains straight sex.\
 Updates: Sunday
 
-[Paranatural](http://paranatural.net/)\
+[Paranatural](https://www.paranatural.net/comic/chapter-1)\
 A boy moves to a town and finds that he can see ghosts.\
 Updates: Tuesday and Friday
 
-[People I know](http://www.timothywinchester.com/)\
+[~~People I know~~](http://www.timothywinchester.com/)\
 Gag a day comic from a gay writer.\
 Updates: Often, but no specific day
 
-[Property of Hate](http://tpoh.smackjeeves.com/comics/1456794/the-hook-page-1/)\
+[Property of Hate](https://jolleycomics.com/TPoH/The_Hook/1)\
 It's a unique look at the hero adventure trope, but using philosophical concepts as characters.\
-Updates: Sundays
+Updates: Sundays\
+Alt Links: [Archive.org](https://archive.org/details/The-Property-of-Hate-webcomic-online) [Archive.org 2](https://web.archive.org/web/20201229040340/https://www.smackjeeves.com/discover/articleList?titleNo=117970)
 
-[**The Rock Cocks**](http://www.therockcocks.com/comic)\
+[**The Rock Cocks**](http://rockcocks.slipshine.net/the-rock-cocks/page-1)\
 A band called the Rock Cocks and the gay CEO that wants to sign them. Contains a lot of fucking, but unfortunately a lot of it is straight.\
 Updates: No regular schedule
 
 [Room of Swords](https://m.webtoons.com/en/sf/room-of-swords/list?title_no=1261)\
 The 34th time Gyrus wakes up in a world ruled by monsters, he still thinks it's his first! Little does he know, he's stuck in a loop until he can survive long enough to collect the treasured "boss sword" from the Boss of Monsters and unlock the mythical Room of Swords before he dies agai- whoops, too late! Well, here's to lucky thirty-five.\
-Updates: Mondays
+Updates: The story is complete
 
-[Scandinavia And The World](satwcomic.com/)\
+[Scandinavia And The World](https://satwcomic.com/sweden-denmark-and-norway)\
 Not strictly /lgbt/, but many of the main characters are gay/bisexual. About the anthropomorphized versions of various countries, particularly the Scandinavian ones.\
 Updates: Irregularly. Usually every two weeks
 
-[Signs](https://tapas.io/series/SIGNS)\
-Not to be confused with the M Night film. A guy with no life is chosen by a secret society of robots. Apparently the artist has drawn gay art of the characters.\
-Updates: Weekly
-
-[Trying Human](http://www.tryinghuman.com/)\
+[Trying Human](https://www.tryinghuman.com/comic/prologue--01)\
 Interspecies romance blossoms against a backdrop of classic UFOlogy.\
-Updates: Weekly
+Updates: Weekly\
+Alt Links: [Old Version](https://www.firsttries.tryinghuman.com/volume1.html)
 
-[Vainglorious](http://www.vaingloriouscomic.com/)\
+[Vainglorious](https://www.vaingloriouscomic.com/comic/chapter-1-cover)\
 When the small dragon Rei decides to challenge his Queen for the throne, he does not expect to get exiled and cursed into human form. Little by little, Rei searches for a cure in the big world outside his nest - making friends, adventures, and headaches along the way.\
 Updates: Mondays and Thursdays
 
-[Warm Blood](https://warmbloodcomic.com/)\
+[Warm Blood](https://warmbloodcomic.com/post/157329839640/1-figures-page-1-illustrated-by-saskia)\
 A really nonsensical story that involves aliens, ghosts, vampires, and talking shrimp. It follows Penny, a new student at Greenwood High, but on her first day there, another student is found murdered and she meets Logan, who admits to being the murderer.\
 Updates: Every few months
 
-[Wilde Life](wildelifecomic.com)\
+[Wilde Life](https://www.wildelifecomic.com/comic/1)\
 Wilde Life is a supernatural adventure/horror series set in a small town in rural Oklahoma. It focuses on stories about creatures from Native American mythology as witnessed and documented by a journalist from Chicago, Illinois.\
 Updates: Monday, Wednesday, Friday
 
@@ -1439,9 +1439,9 @@ Updates: It's just that video
 I want a comic about gay ninjas that fight crime with the power of sodomy.\
 Updates: It's just those two pages. It was too good for this world.
 
-[West Clark and Georgetown](http://westclark.tumblr.com/)\
+[~~West Clark and Georgetown~~](http://westclark.tumblr.com/) (Link is, tragically, an empty tumblr blog.)\
 A comic about the various anons that frequent /wcg/. I'm a character in this one.\
-Updates: It updated once, and then never again.
+Updates: It updated once, and then never again. 
 
 ### Gay Death Tier
 
@@ -1549,6 +1549,10 @@ Formerly Other Comics Tier, on permanent hiatus
 Two guys inadvertently sharing a summer home. A lot of romantic feelings and such ensues.\
 Finished.
 
+[Signs](https://tapas.io/series/SIGNS/info)\
+Not to be confused with the M Night film. A guy with no life is chosen by a secret society of robots. Apparently the artist has drawn gay art of the characters.\
+Updates: Formerly Tangentally Gay Tier, abandoned since 2017.
+
 [Stereophonic](http://stereophonic.thewebcomic.com/comics/)\
 In 1966 London, a young homeless pub worker/singer begins sharing a flat with a starving-artist, and they begin falling in love.\
 Formerly Waifu Tier, ended with no conclusion. URL is now dead.
@@ -1587,15 +1591,16 @@ Defunct. Formerly Other Comics Tier, website died
 
 ### Not Quite Shit But We're Getting There Tier
 
-[Element of Surprise](http://www.misterkitty.org/comics/element/elementintro.html)\
+[Element of Surprise](https://www.misterkitty.net/comics/element/pg1.html)\
 "I stopped reading the second time one of the characters started literally arguing with his dick." - Anon.\
-Updates: No regular update schedule
+Updates: No regular update schedule\
+Alt Link: [Paid Link](https://www.patreon.com/misterkitty)
 
-[Menage a 3](http://www.ma3comic.com/)\
+[Menage a 3](https://pixietrixcomix.com/menage-a-3/for-new-readers)\
 A bunch of random people and their sex lives. Pretty much every character is bisexual.\
 Updates: The story is complete
 
-[Prince of Cats](http://princeofcatscomic.com/)\
+[Prince of Cats](https://web.archive.org/web/20200225165228/http://princeofcatscomic.com/comic/page-01/)\
 An extremely boring comic about a guy can talk to cats. He was apparently raped at some point as well.\
 Updates: The story is complete.
 
