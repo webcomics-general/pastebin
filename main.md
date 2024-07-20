@@ -1509,37 +1509,43 @@ Formerly Lesbian tier, ended with no conclusion
 
 [**Dancing on Embers**](http://www.dancingonembers.com/)\
 A romance between some sort of cocky scruffy secret agent type and some foul mouthed twink set in Fascist 1930's Italy.\
-Updates: Formerly Other Comics tier. Went on hiatus in 2016, the site then died.
+Updates: Formerly Other Comics tier. Went on hiatus in 2016, the site then died.\
+Alt Links: [Archive.org (Smackjeeves)](https://archive.org/details/smackjeeves-149308) [Paid Link](https://blaynefox.itch.io/doe-vol-1) [Artist's Highlights
+](https://www.artstation.com/artwork/WB3Xm2)
 
-[Deadlocke Machinist](http://deadlockemachinist.smackjeeves.com/)\
+[Deadlocke Machinist](https://deadlockemachinist.the-comic.org/comics/1#content-start)\
 A boy who can see music in a postapocolyptic western.\
-Defunct. Formerly Other Comics Tier, ended with no conclusion
+Defunct. Formerly Other Comics Tier, ended with no conclusion\
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-126684) [WayBack](https://web.archive.org/web/20201227131557/https://www.smackjeeves.com/discover/detail?titleNo=126684&articleNo=1)
 
 [Deltram](https://tapas.io/series/Deltrame)\
 Jasper and Reuben have been friends for as long as they can both remember and even though life took them on separate journeys, they still maintained a good relationship.\
 Formerly Gay Tier, abandoned for good.
 
-[Doki Doki Checkmate](http://dokidokicheckmate.blogspot.com/)\
+[Doki Doki Checkmate](http://dokidokicheckmate.blogspot.com/2011/02/blog-post_20.html)\
 A prince and the knight sent to kill him.\
 Formerly Other Comics Tier, ended with no conclusion
 
-[**Enthrall**](enthrall.smackjeeves.com/)\
+[**Enthrall**](https://web.archive.org/web/20201228090503/https://www.smackjeeves.com/discover/detail?titleNo=113047&articleNo=1)\
 Vampires and shit.\
-Defunct. Formerly Other Comics Tier, ended with no conclusion
+Defunct. Formerly Other Comics Tier, ended with no conclusion\
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-113047) 
 
 [Eth's Skin](https://www.eths-skin.com/post/71812472945)\
 Fisher named eth accidentally grabs a selkie's skin, and is unable to let go of it to return it. features a nonbinary main character and a mermaid with two girlfriends.\
 Updates: Formerly Tangentally Gay Tier, on hiatus since 2017.
 
-[Fruitloop & Mr Downbeat](http://fruitbeat.smackjeeves.com/)\
+[Fruitloop & Mr Downbeat](https://web.archive.org/web/20170531080535/http://fruitbeat.smackjeeves.com/comics/2039738/fruitloop-mr-downbeat-cover/)\
 Moot's Gay Adventures.\
-Defunct. Formerly Other Comics Tier.
+Defunct. Formerly Other Comics Tier.\
+Alt Links: [DeviantArt](https://www.deviantart.com/loserfish/art/Fruitloop-Mr-Downbeat-ch-1-173107653)
 
-[Garçon Deux](http://garcondeux.com/)\
+[~~Garçon Deux~~ (Defunct link, WayBack not entirely functional.](http://garcondeux.com/)\
 Phil has been standing alone for a while.\
-Defunct. Formerly Other Comics Tier, ended with no conclusion
+Defunct. Formerly Other Comics Tier, ended with no conclusion\
+Alt Links: [Wayback](https://web.archive.org/web/20140517082540/http://garcondeux.com/)
 
-[Kyle & Atticus](http://kyleandatticus.tumblr.com/)\
+[Kyle & Atticus](https://kyleandatticus.tumblr.com/post/15310576904)\
 A genderqueer kid named Kyle and a robot named Atticus.
 Formerly Trans Tier, ended with no conclusion
 
@@ -1548,55 +1554,62 @@ Fawn moved to Lake Penake after an attempted murder left his body broken and his
 Updates: Previously Gay Tier, abandoned by creator.
 Alt Links: [Archive.org](https://archive.org/details/smackjeeves-176082)
 
-[Lisowski](http://lisowski.thewebcomic.com/chapters/69242/book-one/)\
+[~~Lisowski~~](http://lisowski.thewebcomic.com/chapters/69242/book-one/)\
 Guy who has no feelings suddenly has feelings for guy who takes lots of medication to have no feelings.\
-Defunct
+Updates: Defunct, possibly rebooted then abandoned again?\
+Alt Links: [Tapas reboot](https://tapas.io/series/Lisowski/info) [Webtoons reboot](https://www.webtoons.com/en/canvas/lisowski/list?title_no=677997)
 
 [Lost Boys Academy](http://tapastic.com/episode/70254)\
 The boys at a boarding school for turning gay boys straight.\
 Formerly Other Comics Tier, on permanent hiatus
 
-[**The Maple Effect**](http://themapleeffect.smackjeeves.com/comics/)\
+[**The Maple Effect**](https://web.archive.org/web/20201227230202/https://www.smackjeeves.com/discover/detail?titleNo=151874&articleNo=1)\
 Two guys inadvertently sharing a summer home. A lot of romantic feelings and such ensues.\
-Finished.
+Updates: The story is complete.\
+Alt Links: [Archive.org](https://archive.org/details/smackjeeves-151874) [Paid version/Paperback](https://www.goodreads.com/book/show/50851330-the-maple-effect)
 
 [Signs](https://tapas.io/series/SIGNS/info)\
 Not to be confused with the M Night film. A guy with no life is chosen by a secret society of robots. Apparently the artist has drawn gay art of the characters.\
 Updates: Formerly Tangentally Gay Tier, abandoned since 2017.
 
-[Stereophonic](http://stereophonic.thewebcomic.com/comics/)\
+[Stereophonic](https://web.archive.org/web/20161025102355/http://stereophonic.thewebcomic.com/comics/)\
 In 1966 London, a young homeless pub worker/singer begins sharing a flat with a starving-artist, and they begin falling in love.\
-Formerly Waifu Tier, ended with no conclusion. URL is now dead.
+Formerly Waifu Tier, ended with no conclusion. URL is now dead.\
+Alt Links: [Tapas](https://tapas.io/series/Stereophonic/info) 
 
-[Taproot](http://taprootcomic.tumblr.com/)\
+[~~Taproot~~](https://taprootcomic.tumblr.com/page/4)\
 A ghost falls in love with a burly flower shop employee who can see dead people.\
-Defunct. Formerly Other Comics Tier, comic deleted
+Defunct. Formerly Other Comics Tier, comic deleted.\
+Alt Links: [Hoopla](https://www.hoopladigital.com/comic/taproot-a-story-about-a-gardener-and-a-ghost-keezy-young/15106842) [Paid](https://www.goodreads.com/book/show/35833506-taproot)
 
-[**Teahouse**](teahousecomic.com/)\
+[**Teahouse**](https://web.archive.org/web/20200118060416/http://www.teahousecomic.com/comic/?id=1)\
 Awful and shit comic that we laugh at. It's about fancy gay whores.\
-Formerly Shit Tier, the creators posted summaries of how things will end. If only the actually good comics would do the same.
+Formerly Shit Tier, the creators posted summaries of how things will end. If only the actually good comics would do the same.\
+Alt Links: [The ending summary](https://www.reddit.com/r/boyslove/comments/13g0kjs/teahouse_webcomic/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button) [Archive.com Smackjeeves](https://archive.org/details/smackjeeves-80033) [Paid version/Paperback](https://www.goodreads.com/series/64832-teahouse)
 
-[They Said You Won't Come Back](https://www.smackjeeves.com/comicprofile.php?id=175425)\
+[They Said You Won't Come Back](https://web.archive.org/web/20201227182357/https://www.smackjeeves.com/discover/articleList?titleNo=175425)\
 Two male teachers meet in a middle school. Yashiki is an impulsive, unmotivated, and irresponsible young teacher who runs away from any commitment in his life. When Hinagishi - a devoted, responsible head teacher - ends up with Yashiki as his assistant, conflict is inevitable.\
-Updates: Abandoned
+Updates: Author abandoned free version, was picked up by publishing company and re-released as a manga.\
+Alt Links: [Tapas](https://tapas.io/series/They-said-you-wont-come-back1/info) [Webtoons](https://www.webtoons.com/en/canvas/they-said-you-wont-come-back/list?title_no=209582) [MangaDex (JA)](https://mangadex.org/title/ba345385-41e0-4ab8-b226-ea7515d55caf) [GoodReads](https://www.goodreads.com/book/show/43319085-they-said-you-won-t-come-back)
 
-[Thomas Is Gone](http://thomasisgonecomic.tumblr.com/)\
+[Thomas Is Gone](https://thomasisgonecomic.tumblr.com/post/150847930411)\
 A young heir to a British lordship is kidnapped by a monster, and 47 years later is rescued by the new lord, having not aged a day. But he still has a connection to the beast.\
 Updates: Last update in 2018
 
-[Venus Envy](http://www.venusenvycomic.com/)\
+[Venus Envy](http://venusenvycomic.com/index.php?id=2)\
 A transgirl dealing with transgirl issues.\
 Formerly Trans Tier
 
-[Warrior-U](http://warrior-u.com)\
+[Warrior-U](https://web.archive.org/web/20150221032714/http://warrior-u.com/?p=7)\
 Medieval shota acting camp. They tied up Finn and fucked his chest hole.\
-Formerly Waifu Tier, now completely defunct
+Formerly Waifu Tier, now completely defunct\
+Alt Links: [Tumblr Fan Archive](https://warrior-u-thecomic.tumblr.com/)
 
 [Welcome to the Machine](http://themachinelives.com/comic/welcome-to-the-machine/)\
 Girl who is accused of mass murder is sent to a futuristic high security women only prison filled with lesbians.\
 Formerly Lesbian Tier, ended with no conclusion
 
-[**White Hall**](http://whitetail.smackjeeves.com/comics/2121090/page-1/)\
+[~~**White Hall**~~ (Could not find replacement link)](http://whitetail.smackjeeves.com/comics/2121090/page-1/)\
 Teenage boy that has deer features starts seeing a boy on his school's swim team.\
 Defunct. Formerly Other Comics Tier, website died
 
