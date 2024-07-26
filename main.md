@@ -66,7 +66,7 @@ Two apathetic guys falls in love with each other.\
 Updates: Weekly
 
 [**Arco**](https://tapas.io/series/ARCO/info)\
-## http://arco.smackjeeves.com/comics/2158905/prologue-page-1/\
+#http://arco.smackjeeves.com/comics/2158905/prologue-page-1/\
 A guy who's obsessed with marine biology in his dream program, but he gets a roommate who knows nothing about marine biology and doesn't want to be there.\
 Updates: The story is complete.\
 Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/arco/list?title_no=251870) [Archive.org](https://web.archive.org/web/20201227160008/https://www.smackjeeves.com/discover/articleList?titleNo=155008)
