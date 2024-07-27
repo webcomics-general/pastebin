@@ -37,6 +37,11 @@ Updates: The story is complete.
 
 ### Gay Comics
 
+[10 Years I Loved You the Most](https://webcomicsapp.com/comic/10-Years-That-I-Loved-You-the-Most/5d1afb1a62661d7da77ec372)  
+Trophy wife husband and distant husband. Lots of cheating all around. This is a tragedy, it has no happy ending.  
+Updates: The story is complete.  
+Alt Links: [Bato.to](https://bato.to/title/75599-10-years-that-i-loved-you-the-most)
+
 [**Abel & A Dead Man**](https://tapas.io/series/abel--comic/info)\
 Jim lives an ordinary life until the day he's supposed to die. Abel is a Soul Collector who decides to let Jim live and asks him out instead.\
 Updates: The story is complete
@@ -240,6 +245,10 @@ Updates: Every two days
 [Dishonest Honesty](https://tapas.io/series/Dishonest-Honesty)\
 Gag a day. And now, it isn't funny.\
 Updates: Daily
+
+[The Doctors are Out](https://www.webtoons.com/en/romance/the-doctors-are-out/list?title_no=1910)\
+A vet opens up his new clinic next to a health clinic run by a doctor who coincidentally shares a similar name. Rivalry ensues.\
+Updates: Mondays\
 
 [Dragon Husbands](https://dragonhusbands.thecomicseries.com/)\
 Fairy tale creatures and gays.\
@@ -884,15 +893,6 @@ Updates: Weekly
 [~~Teddyboy~~](https://tapas.io/series/Teddyboy) (Defunct, could not find replacement link.\
 Awkward twink with a crush.\
 Updates: Allegedly weekly
-
-[The Ten Years I Loved You the Most](https://webcomicsapp.com/comic/10-Years-That-I-Loved-You-the-Most/5d1afb1a62661d7da77ec372)  
-Trophy wife husband and distant husband. Lots of cheating all around. This is a tragedy, it has no happy ending.  
-Updates: The story is complete.  
-Alt Links: [Bato.to](https://bato.to/title/75599-10-years-that-i-loved-you-the-most)
-
-[The Doctors are Out](https://www.webtoons.com/en/romance/the-doctors-are-out/list?title_no=1910)\
-A vet opens up his new clinic next to a health clinic run by a doctor who coincidentally shares a similar name. Rivalry ensues.\
-Updates: Mondays\
 
 [Theurgy](http://theurgycomic.com/post/152367647450/)\
 A college kid who summons a hot demon with his friends and doesn't know what to do with him now that he's there. Unoriginal but cute.\
