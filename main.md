@@ -219,6 +219,11 @@ Alt Links: [Author's Link](https://www.kytri.net/comics/)
 Witch's son is invited to the Prince's ball and meets a tall, handsome stranger? They bang.\
 Updates: No regular schedule.
 
+[**Dead or Alive**](https://www.lezhinus.com/en/comic/deadalive)  
+Almost-retired bounty hunter drags a reluctant twink on a western, cross-country, sex-filled journey.
+Updates: The story is complete.  
+Alt Links: [Bato.to](https://bato.to/title/138095-dead-or-alive) [AnimePlanet](https://www.anime-planet.com/manga/dead-or-alive)
+
 [Decaf](https://tapas.io/series/Decafcomic)\
 Hanse, a floor manager, is going through an existential crisis until Karl, the new intern, shows up and makes thing around the office more exciting. Basically Office AU: the Comic.\
 Updates: Weekly.
@@ -804,6 +809,11 @@ Updates: The story is complete.
 Graduation is only a few days away, and the days are numbered for Philo- a young Satyr about to finish dead last in his class. When he's paired together during training with Atlas- the aloof star student- a magical accident will set events into motion that neither of them could have possibly predicted.\
 Updates: Mondays and Fridays
 
+[Speak the Truth](https://tapas.io/series/speak-the-truth/info)  
+Gay prince attempts to destroy commmoner rival, then attempts to have his ass destroyed by said commmoner rival.  
+Updates: Once per month, ish, abandoned since 2022.  
+Alt Links: [Bato.to](https://bato.to/title/83218-speak-the-truth-tapas-original)
+
 [~~**Spectre**~~](spectrecomic.com/index.html) (Defunct link, could not find replacement.)\
 Gay guy is kidnaped by an evil organization. Rape and torture ensues.\
 Updates: Rarely. Was on hiatus for well over a year.
@@ -874,6 +884,11 @@ Updates: Weekly
 [~~Teddyboy~~](https://tapas.io/series/Teddyboy) (Defunct, could not find replacement link.\
 Awkward twink with a crush.\
 Updates: Allegedly weekly
+
+[The Ten Years I Loved You the Most](https://webcomicsapp.com/comic/10-Years-That-I-Loved-You-the-Most/5d1afb1a62661d7da77ec372)  
+Trophy wife husband and distant husband. Lots of cheating all around. This is a tragedy, it has no happy ending.  
+Updates: The story is complete.  
+Alt Links: [Bato.to](https://bato.to/title/75599-10-years-that-i-loved-you-the-most)
 
 [The Doctors are Out](https://www.webtoons.com/en/romance/the-doctors-are-out/list?title_no=1910)\
 A vet opens up his new clinic next to a health clinic run by a doctor who coincidentally shares a similar name. Rivalry ensues.\
