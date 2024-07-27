@@ -202,7 +202,7 @@ Updates: Completed!
 
 [**Crushed**](https://tapas.io/series/CRUSH3D/info) [Archive on the author's GDrive (English/German)](https://drive.google.com/drive/folders/1N9nm7O-2XFXTv_gOO_KvfnzjP64OUVsl?usp=sharing)\
 Carter "Crush" Howe is a gay guy and hockey star player at an all-boy's boarding school in Canada who begins to rethink his promiscuous lifestyle after he starts cheating on his long-time boyfriend.\
-Updates: The story has been rebooted, and so has the archive file.
+Updates: The story has been rebooted, and so has the archive file.  
 Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/crush3d/list?title_no=82094) 
 
 [Crush3d!!](https://tapas.io/series/CRUSH3D)\
@@ -219,9 +219,9 @@ Alt Links: [Author's Link](https://www.kytri.net/comics/)
 Witch's son is invited to the Prince's ball and meets a tall, handsome stranger? They bang.\
 Updates: No regular schedule.
 
-[**Dead or Alive**](https://www.lezhinus.com/en/comic/deadalive)  
-Almost-retired bounty hunter drags a reluctant twink on a western, cross-country, sex-filled journey.
-Updates: The story is complete.  
+[**Dead or Alive**](https://www.lezhinus.com/en/comic/deadalive)\
+Almost-retired bounty hunter drags a reluctant twink on a western, cross-country, sex-filled journey.\
+Updates: The story is complete.\
 Alt Links: [Bato.to](https://bato.to/title/138095-dead-or-alive) [AnimePlanet](https://www.anime-planet.com/manga/dead-or-alive)
 
 [Decaf](https://tapas.io/series/Decafcomic)\
