@@ -258,7 +258,7 @@ Updates: Mondays\
 Fairy tale creatures and gays.\
 Updates: The story is complete
 
-[Draw Me](https://tapastic.com/series/Draw_Me)\
+[Draw Me](https://tapas.io/series/Draw_Me/info)\
 An artist stalks a track athlete to draw his butt and who cares about the plot, everyone is pretty, you like pretty boys don't you?\
 Updates: No regular update schedule
 
@@ -266,9 +266,10 @@ Updates: No regular update schedule
 A sexually repressed closeted teacher decides to experiment, plus a former student of his that works in a sex stop.\
 Updates: Allegedly on Wednesdays.
 
-[**Eclipse of the Sun**](https://tapas.io/series/Eclipse-of-the-Son/info)\
+[**Eclipse of the Sun**](https://eclipseoftheson.thecomicseries.com/comics/first)\
 Dark skinned twink gets hunted down.\
-Updates: Mondays, Wednesdays and Fridays
+Updates: Mondays, Wednesdays and Fridays\
+Alt Links: [Tapas](https://tapas.io/series/Eclipse-of-the-Son/info)
 
 [**The Elduin and Donestan Chronicles**](http://trickster-book.com/lostinthesnow/archive/act1eng/1.html)\
 A noble and a lumberjack looking guy are stuck in a cabin, so they fuck.\
@@ -280,12 +281,13 @@ Illiterate junkie prostitute meets a priest in a bus, plus badly drawn sex.\
 Updates: Twice weekly
 
 [**Ennead**](https://bato.to/series/79851/ennead-mature)\
-Hot Egyptian gods intrigue against eachother, but mostly against Seth.\
+Hot Egyptian gods intrigue against each other, but mostly against Seth.\
 Updates: Roughly every week and a half.
 
-[**Enoka**](https://tapas.io/series/Enokan)\
+[**Enokan**](https://tapas.io/series/Enokan)\
 A demonic looking creature is on the loose and hunters seem to be its prime target. One hunter in particular, Reider Hawthorn, briefly comes face to face with this beast. Luckily, he survives but what will happen when this monster comes back for more?\
-Updates: Weekly
+Updates: Weekly\
+Alt Links: [Rebooted version (Old version available her as well)](https://tapas.io/series/Enokan--Rebooted/info)
 
 [Erebus](https://tapas.io/series/Erebus)\
 Only one can be King... Erebus tells the story of second-born Prince Casimir and his search for the power to overthrow his own brother.\
