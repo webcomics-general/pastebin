@@ -302,17 +302,17 @@ The story of people genetically engineered to be prostitutes in order to immuniz
 Updates: Sundays, appears abondoned\
 Alt Links: [Tapas](https://tapas.io/series/EPHEMERAL/info)
 
-[Everyone Hates Debate Club](http://everyone-hates-debate-club.smackjeeves.com/)\
+[Everyone Hates Debate Club](https://web.archive.org/web/20201227153058/https://www.smackjeeves.com/discover/articleList?titleNo=145059)\
 Swimmer highschool gay crushes over his qt blonde best friend; given the banner says "BL" they're probably gonna fug\
 Updates: No regular update schedule\
 Alt Links: [Archive.org](https://archive.org/details/smackjeeves-145059)
 
-[**Exorcism Academy**](http://ea.asmodrawscomics.com)\
+[**Exorcism Academy**](https://ea.asmodrawscomics.com/comic/title-page/)\
 Like a bara version of Starfighter, but less rapey\
 Updates: Allegedly Saturday
 
 [Eyes on Me](https://tapas.io/series/eyesonmecomic)\
-Evan forgets his keys(once again) and on his way to find them he didn't expect to find such a cute guy at the door... even less for said guy to be half naked and interested in him for no reason\!\
+Evan forgets his keys(once again) and on his way to find them he didn't expect to find such a cute guy at the door... even less for said guy to be half naked and interested in him for no reason!\
 Updates: Twice a month
 
 [Falling from Cloud Nine](https://tapas.io/series/ffc9/info)\
@@ -327,7 +327,7 @@ Updates: No regular update schedule
 It's about a guy who one day happens to come across a flower shop with his sister and gets a bouquet from the guy who works there and they grow close\
 Updates: No regular update schedule
 
-[Flowerpot](http://flowerpot.smackjeeves.com/)\
+[Flowerpot](https://web.archive.org/web/20201228080150/https://www.smackjeeves.com/discover/articleList?titleNo=157021)\
 Guy who grows flowers out of his head is courted by guy who used to have one growing out of his ear\
 Updates: Indefinite hiatus, but not abandoned.\
 Alt Links: [Archive.org](https://archive.org/details/smackjeeves-157021) [Webtoons](https://www.webtoons.com/en/canvas/flowerpot/list?title_no=51856) [Tapas](https://tapas.io/series/Flowerpot/info) [Tumblr](https://flowerpot-comic.tumblr.com/post/136451132675/flowerpot-title-page-read-flowerpot-on-tapastic)
@@ -362,11 +362,12 @@ Updates: No regular update schedule
 A straight-laced boy finds an unlikely friendship in a rebellious transfer student and they'll probably kiss after like 25 chapters.\
 Updates: No regular update schedule
 
-[The God in the Field](https://tapastic.com/episode/330231)\
+[The God in the Field](https://web.archive.org/web/20231206054554/https://tapas.io/episode/330231)\
 The story of Hades and Persephone, but shotacon.\
-Updates: No regular update schedule.
-[
-Golden Camellia](https://tapas.io/series/Golden-Camellia/info)\
+Updates: No regular update schedule.\
+Alt Links: [Paid Version](https://www.vvbgcomics.com/product/the-god-in-the-field-1-2-pdf/) 
+
+[Golden Camellia](https://tapas.io/series/Golden-Camellia/info)\
 Poor gay boy gets seduced by twink with dubious intentions.\
 Updates: Eventually\
 Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/golden-camellia/list?title_no=81223)
@@ -379,9 +380,10 @@ Updates: On hiatus
 A slice of life comic about gay criminals who deal in harvesting and trading human organs. NSFW due to gore rather than fucking.\
 Updates: Tuesday and Friday
 
-[~~Guard Dog~~](https://tapas.io/series/Guard-dog) (Defunct, could not find replacement link.)\
+[~~Guard Dog~~](https://web.archive.org/web/20220925110716/https://tapas.io/series/Guard-dog) (Defunct, could not find replacement link.)\
 Post-Apocalyptic gays.\
 Updates: Every few days or so\
+Alt Links: [Wayback of Tapas](https://web.archive.org/web/20220925110716/https://tapas.io/series/Guard-dog)
 
 [HAMUS](https://tapas.io/series/hamus/)\
 Hamus has a strange item that gives his unfinished robot enough power to be functional, that's when a cursed boy finds out about it and tries to take it from him at all costs.\
@@ -425,7 +427,7 @@ Updates: Every Friday or Saturday
 
 [**Hell Eyes**](https://tapas.io/series/HellEyes/info)\
 Post apocalyptic world with demons and angels\
-Updates: The story is complete.
+Updates: The story is complete.\
 Alt Links: [Blog Series](https://helleyes.thecomicseries.com/comics/1#content-start) [Extra bonus](https://tapas.io/series/HellEyes-Anniversary/info)
 
 [Hell Hounds](https://tapas.io/series/Hell-Hounds)\
@@ -476,9 +478,10 @@ Horse Fucking II: The Fuckening.\
 Updates: Wednesday\
 Alt Links: [Included in HotBlood PDF Download](https://rot-iron.itch.io/hotblood)
 
-[**The Hunt**](https://tapas.io/series/TheHunt)\
+[**The Hunt**](https://yaoi.biz/the-hunt/part-1/page-0)\
 From the creator of Bird Twinks, AKA Avilae, comes Gay Buzzfeed Unsolved\
-Updates: Fridays (When she gets to it)
+Updates: Fridays (When she gets to it)\
+Alt Links: [Tapas](https://tapas.io/series/TheHunt) [Webtoons](https://www.webtoons.com/en/canvas/the-hunt/list?title_no=320272)
 
 [~~Icarus~~](http://fifty-three.net/icarus/) (No free links available.)\
 Two dudes who have no idea what the hell they're doing. Kolya wants to fly, Ptichka wants to go home, and neither of those things seem likely to happen\
