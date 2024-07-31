@@ -540,7 +540,7 @@ Updates: The story is complete
 Ryan is an amateur musician with a lot of friends and no future plans. He doesn't work, engage in long lasting relationships, or take anything seriously, What he does do, is fall in love with pretty much every guy he sets his eyes on - including the stranger he once banged in a motel and who he knows absolutely nothing about.\
 Updates: Every three weeks
 
-[~~Love at First Sight~~](http://www.smackjeeves.com/comicprofile.php?id=163543) (Does not appear to be available for free, other than Archive.org)\
+[Love at First Sight](https://web.archive.org/web/20201228052320/https://www.smackjeeves.com/discover/articleList?titleNo=163543) (No free versions available, other than Archive.org)\
 Sato is pretty simple guy that just doesn't think much before he speaks... One day he tells Kenichi he is "beautiful" without even realizing he is talking to another guy!! After that incident pair become friends... Or maybe more?\
 Updates: In large chunks, every so often.\
 Alt Links: [Archive.org (Sketches only)](https://archive.org/details/smackjeeves-163543) [Paid Link](https://www.indyplanet.com/love-at-first-sight)
@@ -565,13 +565,9 @@ Updates: Fridays
 [~~Marine Boy~~](https://tapas.io/series/Marine-Boy) (Defunct, could not find replacement link.)\
 Dude falls in love in a fugitive merman who escaped his tyrannical father to work as a human in an aquarium.\
 Updates: Weekly (But sometimes biweekly)\
-Alt Links: [Archive.org (First chapter only)](https://web.archive.org/web/20211023170252/https://tapas.io/episode/1894231)
+Alt Links: [Archive.org (First chapter only)](https://web.archive.org/web/20220503163330/https://tapas.io/series/Marine-Boy/info)
 
-[~~Matias and Anders~~](http://matianders.tumblr.com/) (Defunct, cannot find replacement link.)\
-Finnish uni student wants to get boned by his Scandinavian lit professor.\
-Updates: A few pages a month
-
-[~~**Meat & Bone**~~](http://meatandbonecomic.com) (No free versions available.)\
+[**Meat & Bone**](https://web.archive.org/web/20180919223431/http://meatandbonecomic.com/post/90506313377) (No free versions available, Archived.)\
 Slice-of-life comic following an eclectic group of characters in some hip, Canadian city.\
 Updates: Tuesdays and Thursdays\
 Alt Links: [Paid Version](https://www.tcj.com/reviews/meat-bone/)
@@ -621,7 +617,7 @@ Comic about drug lords son who is schizophrenic I think and fucks some drug pack
 Updates: Every few days
 
 [**Ninety Nine Righteous Men**](https://tapas.io/series/99RM/info)\
-A trio of literal jesus-fags enter a hate/lust triangle when one of them gets possessed by the devil.  
+A trio of literal jesus-freaks enter a hate/lust triangle when one of them gets possessed by the devil.  
 Update: The story is complete.  
 Alt Links: [Paid Versions](http://ninetyninerighteousmen.webcomic.ws/)
 
@@ -753,7 +749,7 @@ Updates: The story is complete.
 LGBTQ+ 'gangs' in the 1950s, very docile. It's a comedy/slice of life comic that touches occasionally on relationships\
 Updates: Sporadically
 
-[~~Ruby Slippers~~](https://rubyslipperscomic.tumblr.com/) (Defunct, could not find replacement.)\
+[Ruby Slippers](https://web.archive.org/web/20220912215939/https://rubyslipperscomic.tumblr.com/post/160411826077) (Tumblr deleted, Archived)\
 Space Opera with eventual gay\
 Updates: Sunday
 
@@ -761,10 +757,6 @@ Updates: Sunday
 Japanese gays at the fish market.\
 Updates: Tuesdays and Fridays.  
 Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/sakana/list?title_no=934213)
-
-[Same Shit, Different Day](https://tapastic.com/series/Same-Shit-Different-Day)\
-Semi-autobiographical account of the artist's interactions with his boyfriend\
-Updates: No regular update schedule
 
 [Sarota Springs](https://m.tapas.io/series/Sarota-Springs)\
 An author with a secret living secretly in the sticks gets discovered.\
@@ -774,7 +766,7 @@ Updates: Weekly
 A comic made by one of us. A man with no memories of how he got there wakes up on a raft in the middle of the ocean.\
 Updates: No regular schedule. Assume that it will abruptly when the creator gets a bf.
 
-[Serendipity](https://tapastic.com/series/serendipia-english)\
+[Serendipity](https://tapas.io/series/serendipia-english/info)\
 The act of finding something valuable or delightful when you are not looking for it. Spencer and Colin are about to experience this.\
 Updates: Weekly
 
@@ -788,9 +780,10 @@ Updates: No regular update schedule
 
 [Sharpe & Rabbit](https://tapas.io/series/sharpeandrabbit/info)\
 AJ, aka Rabbit, works at a seedy nightclub in order to survive. He dreams of saving up enough money to finally leave town... until the night his former high school math teacher, Mr. Sharpe, walks in. Little did AJ know Mr. Sharpe, is actually a deadly ex-hitman?! When Mr. Sharpe's former employer asks him to take on a dangerous mission, unfortunately for AJ, he's the perfect partner for the task. If AJ helps him, Sharpe promises freedom from his terrible life. It's an offer AJ can't refuse...\
-Updates: Weekly
+Updates: Weekly\
+Alt Links: [Bato.to](https://bato.to/title/88047) [Paid Link](https://www.vvbgcomics.com/sharpe-rabbit/)
 
-[Sharp Zero](https://tapastic.com/episode/170613)\
+[Sharp Zero](https://tapas.io/series/SharpZero/info)\
 Super LGBTQA+ superhero webcomic. Sometimes embarrassingly so.\
 Updates: Mondays and Fridays
 
@@ -803,13 +796,14 @@ A manhwa in which a part-timer works at a café and can't help getting turned on
 Update: The story is complete.  
 Alt Links: [Lezhin (Support the author!)](https://www.lezhin.com/en/comic/sign_en)
 
-[~~Sing the Moon Down~~](http://singthemoondown.smackjeeves.com/) (Defunct, could not find replacement link.)\
+[Sing the Moon Down](https://web.archive.org/web/20201227223425/https://www.smackjeeves.com/discover/articleList?titleNo=148717) (Defunct, Archived.)\
 Ginger twink runs a witchery in a small town, meets a long haired burly werewolf.\
 Updates: The story is complete.
 
 [**Sk8terboi**](https://tapas.io/series/Sk8trboi)\
 A webcomic about preppy kids and underdogs. No relation to the Avril Levigne song.\
-Updates: Weekly
+Updates: Weekly\
+Alt Links: [Paid Uncensored Link](https://www.patreon.com/peachkiwicomics)
 
 [Society of Vice](https://tapas.io/series/sovcomic/info)  
 Follows the lives of several sexually-troubled people who meet up in a support group held at a fetish bar\
@@ -832,9 +826,10 @@ Gay prince attempts to destroy commmoner rival, then attempts to have his ass de
 Updates: Once per month, ish, abandoned since 2022.  
 Alt Links: [Bato.to](https://bato.to/title/83218-speak-the-truth-tapas-original)
 
-[~~**Spectre**~~](spectrecomic.com/index.html) (Defunct link, could not find replacement.)\
+[**Spectre**](https://web.archive.org/web/20200718182708/http://www.spectrecomic.com:80/index.html) (Defunct, Archived.)\
 Gay guy is kidnaped by an evil organization. Rape and torture ensues.\
-Updates: Rarely. Was on hiatus for well over a year.
+Updates: Abandoned, site defunct. Supposedly 6 volumes in print.
+Alt Links: [GoodReads](https://www.goodreads.com/author/show/6926278.Marcus_Avenier)
 
 [SPF 100+](https://tapas.io/series/SPF-100/)\
 Gay shota vampire falls in love with human surfer boy.\
@@ -860,9 +855,10 @@ Updates: The story is complete
 It's about gay sex. IN SPAAAAAAAAACE! We don't care about the story as long as she keeps drawing porn.\
 Updates: The story is complete.
 
-[~~Stolen~~](http://gestohlen.smackjeeves.com/) (Defunct, could not find replacement link.)\
+[Stolen](https://web.archive.org/web/20191206024718/https://www.smackjeeves.com/discover/articleList?titleNo=127876) (Defunct, Archived.)\
 Everyone is gay, works out, has great bodies, and wears skin tight clothing. Also I think there's a plot?\
-Updates: Sundays
+Updates: Sundays\
+Alt Links: [DeviantArt](https://www.deviantart.com/renrou/art/Stolen-page-216-767726283)
 
 [Suave and Rudy](https://tapas.io/series/Suave-X-Rudy)\
 Two people with nothing in common who achieve a love that will transcend time.\
@@ -1590,6 +1586,10 @@ Formerly Other Comics Tier, on permanent hiatus
 Two guys inadvertently sharing a summer home. A lot of romantic feelings and such ensues.\
 Updates: The story is complete.\
 Alt Links: [Archive.org](https://archive.org/details/smackjeeves-151874) [Paid version/Paperback](https://www.goodreads.com/book/show/50851330-the-maple-effect)
+
+[Matias and Anders](https://web.archive.org/web/20180914214055/http://matianders.tumblr.com:80/)\
+Finnish uni student wants to get boned by his Scandinavian lit professor.\
+Updates: Formerly Gay Tier, abandoned and tumblr page now deleted.
 
 [Signs](https://tapas.io/series/SIGNS/info)\
 Not to be confused with the M Night film. A guy with no life is chosen by a secret society of robots. Apparently the artist has drawn gay art of the characters.\
