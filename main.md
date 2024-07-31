@@ -205,10 +205,14 @@ Updates: No regular schedule.
 Kyle and Tyler have a passionate hatred for one another. Their first encounter ends in a fist fight, their second one, in bed.\
 Updates: Completed!
 
-[**Crushed**](https://tapas.io/series/CRUSH3D/info) [Archive on the author's GDrive (English/German)](https://drive.google.com/drive/folders/1N9nm7O-2XFXTv_gOO_KvfnzjP64OUVsl?usp=sharing)\
+[The Croaking](https://www.webtoons.com/en/fantasy/the-croaking/list?title_no=1494)\
+Emo crow and jock osprey share a room at an academy. Dig into a conspiracy and ignore the fact that one ghosted the other before arriving.\
+Updates: Every Saturday.
+
+[**Crushed**](https://archive.org/details/view-01-carter-20240317-t-222805-z-001) [Archive on the author's GDrive (English/German)](https://drive.google.com/drive/folders/1N9nm7O-2XFXTv_gOO_KvfnzjP64OUVsl?usp=sharing)\
 Carter "Crush" Howe is a gay guy and hockey star player at an all-boy's boarding school in Canada who begins to rethink his promiscuous lifestyle after he starts cheating on his long-time boyfriend.\
 Updates: The story has been rebooted, and so has the archive file.  
-Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/crush3d/list?title_no=82094) 
+Alt Links: [WaybackMachine](https://web.archive.org/web/20180108134119/http://crushed.smackjeeves.com/) 
 
 [Crush3d!!](https://tapas.io/series/CRUSH3D)\
 The sanitized, full-color reboot of Crushed. No longer a depressing, and at times darkly-accurate, porn comics with a plot featuring damaged teenagers. More emphasis on hockey hijinks and on the supporting cast.\
