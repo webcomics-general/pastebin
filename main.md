@@ -942,14 +942,10 @@ Alt Links: [Archive.org](https://archive.org/details/smackjeeves-139751)
 Kakyus most favourite pastime is teasing Noél in any which way possible. The best way to do that is feeding him unwanted information about sex.\
 Updates: Every few days
 
-[~~**Tosi Huono Yaoi Sarjis**~~](http://tosihuonoyaoisarjis.smackjeeves.com/comics/)\
+[**Tosi Huono Yaoi Sarjis**](https://web.archive.org/web/20201227052734/https://www.smackjeeves.com/discover/articleList?titleNo=141725))\
 Same author as "Life Outside the Circle." A weird yaoi satire about some rockstar who goes out with an uguu desu artist. Also contains lesbians, and apparently the rockstar is a demon.\
 Updates: Abandoned, rebooted into "Millenials Kill."  
 Alt Links: [Archive.org](https://archive.org/details/smackjeeves-141725)
-
-[**Toxic For You**](https://tapastic.com/series/toxicforyou)\
-The stumbles of love and relationships, and the difficulties of mental illnesses.\
-Updates: Biweekly
 
 [Transfusions](http://transfusionscomic.com/comic/01-cover)\
 It's about vampires and discovering you like the dick, but the protagonist is totes not gay.\
@@ -1057,7 +1053,7 @@ Updates: Allegedly on Monday, Wednesday, and Friday
 [**Can't Look back**](https://cantlookbackcomic.tumblr.com/page/30)\
 Lesbians.\
 Updates: The story is complete.  
-Alt Links: [Comic Rocket Archive](https://www.comic-rocket.com/read/cant-look-back/1) 
+Alt Links: [Tumblr](https://cantlookbackcomic.tumblr.com/page/30) 
 
 [ChaosLife](https://chaoslife.findchaos.com/comic/redditcomic)\
 A semi-autobiographical comic about the agender author and their girlfriend.\
@@ -1618,6 +1614,10 @@ Alt Links: [Tapas](https://tapas.io/series/They-said-you-wont-come-back1/info) [
 [Thomas Is Gone](https://thomasisgonecomic.tumblr.com/post/150847930411)\
 A young heir to a British lordship is kidnapped by a monster, and 47 years later is rescued by the new lord, having not aged a day. But he still has a connection to the beast.\
 Updates: Last update in 2018
+
+[**Toxic For You**](https://tapas.io/series/toxicforyou/info)\
+The stumbles of love and relationships, and the difficulties of mental illnesses.\
+Updates: Abandoned per creator.
 
 [Venus Envy](http://venusenvycomic.com/index.php?id=2)\
 A transgirl dealing with transgirl issues.\
