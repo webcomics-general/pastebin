@@ -1195,6 +1195,11 @@ Updates: Tuesdays and Thursdays
 While trying to find his missing father, Max ends up in an another dimension with demons and other horrors.\
 Updates: Tuesdays (Usually)
 
+[The Bride Was a Boy](https://bato.to/title/20415-hanayome-wa-motodanshi)\
+Diary-style comic about a trans woman's marriage to her husband.\
+Updates: The story is complete.\
+Alt Links: [MangaDex](https://mangadex.org/title/92c4fc23-533f-4486-af2a-e4a2a2007703/hanayome-wa-motodanshi) [Goodreads](https://www.goodreads.com/book/show/37650632-the-bride-was-a-boy)
+
 [Eerie Crests](https://tapas.io/series/Eerie-Crests)\
 Here's the gist of it. Dallas Margolin is trans, jewish, depressed & friendless in Oregon. Then he meets Poppy Rajkhowa & Malek Solh, who become his best friends. Dallas develops feelings for Malek.( And it looked like Malek was reciprocating). But then Malek goes missing.\
 Updates: Monthly
@@ -1253,6 +1258,11 @@ Just a cute romance comic. Also has a super cute mtf character.\
 Updates: Complete, first volume free downlad.  
 Alt Links: [Print copies + merch](https://1989nk.com/)
 
+[To Strip the Flesh](https://bato.to/title/108694-to-strip-the-flesh)\
+Oneshot (with epilogue) of a guy who has to learn how to live for his own happiness. Part of a short anthrology of works by Oto Toda.\
+Updates: The story is complete.\
+Alt Links: [Dynasty Scans](https://dynasty-scans.com/chapters/stripping_the_flesh#1) [VIZ (Paid Publication)](https://www.viz.com/read/manga/to-strip-the-flesh/product/7099)
+
 [Trans Girl Next Door](https://www.transgirlnextdoor.com/archive)\
 Journal comic from a trans girl.\
 Updates: No regular update schedule
@@ -1281,9 +1291,20 @@ Updates: The story is complete
 Some assexual guy and his kinky friends.\
 Updates: The story is complete
 
+[Soul to Call](http://soultocall.com/comic/1 )\
+Aloof courier in a post-apocalyptic world tracks down a creature rumored to have the abilities that she’ll need so she can be reunited with her family.\
+Updates: Mondays\
+Alt Links [Webtoons (Not updated)](https://www.webtoons.com/en/canvas/soul-to-call/list?title_no=59794) [Tapas (Not updated)](https://tapas.io/series/Soul-to-Call/info)
+
 [Supernormal Step](https://www.supernormalstep.com/archives/8)\
 Ace saves the world with magic\
 Updates: The Story is complete
+
+[Wonderous](https://tapas.io/series/Wondrous-comic/info)\
+Ace girl makes friends with a fellow band-obsessed fangirl.\\
+Updates: The story is complete.\\
+Alt Links: [Webtoons](https://www.webtoons.com/en/canvas/wondrous-an-aroace-coming-of-age-story/list?title_no=594584)\ 
+[Tumblr](https://wondrouscomic.tumblr.com/post/644644822266920960(Incomplete))
 
 ### Bisexual Tier
 
@@ -1322,6 +1343,12 @@ Updates: The story is complete.
 [Prequel (Not complete)](https://web.archive.org/web/20200216072937/http://www.lovesyck.com/comics/lovesyck/)\
 Updates: Incomplete in free/archived versions, complete in paid version.
 Alt Links: [E-Hentai](https://e-hentai.org/s/3755e8f8dc/936555-1) [Paid Links](https://alexisflower.itch.io/lovelyss)
+
+[My Love Mix-Up/Kieta Hatsukoi](https://bato.to/title/94088)\
+'*Boy likes girl, girl likes boy, but not same boy that likes girl. Boy thinks girl likes boy who thinks he likes boy. Confused yet? So are they.*\
+Love triangle mix-up that is actually funny and cute.\
+Updates: Nine volumes in print, the story is complete.\
+Alt Links: [MangaDex](https://mangadex.org/title/1a667dd0-36bf-4c0f-82a2-1067ccdbe5c0/my-love-mix-up) [VIZ (Published versions)](https://www.viz.com/read/manga/my-love-mix-up-volume-1/product/6832)
 
 [Questionable Content](https://questionablecontent.net/view.php?comic=1)\
 The daily lives of a bunch of random people. Contains a lesbian, a bisexual girl, and an MtF transgender person.\
