@@ -1501,6 +1501,10 @@ Updates: It's just those two pages. It was too good for this world.
 A comic about the various anons that frequent /wcg/. I'm a character in this one.\
 Updates: It updated once, and then never again. 
 
+[Zocker](https://www.webtoons.com/en/canvas/zocker/list?title_no=538171) (NSFW chapters on Patreon.)\
+Two German boys who only know each other through online video games have the opportunity to meet. One of them slowly catches feelings for the other.\
+Updates: The story is complete. A seventh chapter updates usually on Tuesday, only on Patreon for now.\
+
 ### Gay Death Tier
 
 Comics that were abandoned by their creator, often without a conclusion. Press F to pay your respects.
