@@ -1504,6 +1504,7 @@ Updates: It updated once, and then never again.
 [Zocker](https://www.webtoons.com/en/canvas/zocker/list?title_no=538171) (NSFW chapters on Patreon.)\
 Two German boys who only know each other through online video games have the opportunity to meet. One of them slowly catches feelings for the other.\
 Updates: The story is complete. A seventh chapter updates usually on Tuesday, only on Patreon for now.\
+Alt Links: [Fiothin's Patreon](https://www.patreon.com/Fiothin) [German Version](https://www.animexx.de/doujinshi/zeichner/107634)\
 
 ### Gay Death Tier
 
