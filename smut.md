@@ -1,3 +1,9 @@
+**UPDATE** (April 18, 2025) - While 4chan remains offline, a few of the /wcg/ anons have moved to a newly created [forum](https://forum.webcomicsgeneral.top). Please join us!
+
+**UPDATE** - This GitHub repository is no longer updated now that we have a [wiki](https://www.webcomicsgeneral.top). Please use the wiki instead.
+
+---
+
 ## Skip to the good bit
 
 Official /wcg/ Y Gallery account:\
