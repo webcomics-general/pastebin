@@ -1,8 +1,5 @@
-**UPDATE** - **4chan has been hacked!** While it remains offline, a few of the /wcg/ anons have moved to a newly created [forum](https://forum.webcomicsgeneral.top). Please join us!
-
-**UPDATE** - This GitHub repository is no longer updated now that we have a [wiki](https://www.webcomicsgeneral.top). Please use the wiki instead.
-
----
+> [!CAUTION]
+> This GitHub repository is no longer updated now that we have a [wiki](https://www.webcomicsgeneral.top). Please use the wiki instead. Note that we also have a [backup forum](https://forum.webcomicsgeneral.top) for when 4chan is offline.
 
 # /wcg/'s next-gen pastebins
 

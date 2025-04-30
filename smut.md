@@ -1,8 +1,5 @@
-**UPDATE** - **4chan has been hacked!** While it remains offline, a few of the /wcg/ anons have moved to a newly created [forum](https://forum.webcomicsgeneral.top). Please join us!
-
-**UPDATE** - This GitHub repository is no longer updated now that we have a [wiki](https://www.webcomicsgeneral.top). Please use the wiki instead.
-
----
+> [!CAUTION]
+> This GitHub repository is no longer updated now that we have a [wiki](https://www.webcomicsgeneral.top). Please use the wiki instead. Note that we also have a [backup forum](https://forum.webcomicsgeneral.top) for when 4chan is offline.
 
 ## Skip to the good bit
 
@@ -99,9 +96,9 @@ Erotic Pages:\
 
 Or fanfics we find amusing.
 
-[In which Nate (narrator anon) and Stephen (7-11 anon) meet](http://pastebin.com/SHvM1Ege)
+[In which Nate (narrator anon) and Stephen (7-11 anon) meet](https://pastebin.com/SHvM1Ege)
 
-[In which Philly Anon is greeted by a stranger](http://pastebin.com/vSJZ4vcW)
+[In which Philly Anon is greeted by a stranger](https://pastebin.com/vSJZ4vcW)
 
 [An Average Day in Medieval Britain](https://www.youtube.com/watch?v=ASZIgJhwD4g)
 
